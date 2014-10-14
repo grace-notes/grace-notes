@@ -55,9 +55,9 @@ As you study the following verses, try to determine in each case the reasons for
 
 (**adeimonia**), noun, in great distress or anguish.
 
-“_My soul is exceeding sorrowful…_”, Mark 14:34
+* “_My soul is exceeding sorrowful…_”, Mark 14:34
 
-“because he was longing for you all and was distressed because you had heard that he was sick.” Phil. 2:26
+* “because he was longing for you all and was distressed because you had heard that he was sick.” Phil. 2:26
 
 (**anagkei**), noun, necessity, constraint, natural desire such as hunger, bodily pain or suffering. When used with  (**thlipsis**), signifies a condition of necessity arising from some form of outside compulsion.
 
