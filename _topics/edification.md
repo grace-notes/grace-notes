@@ -34,7 +34,7 @@ Doctrine that is learned must feed both the human spirit and the human soul for 
 
 Love is the means of reaching maturity and being edified. This is growing in applied knowledge. 1 Cor. 8
 
-The growth of Christian love is a sign that a person has been learning and applying doctrine. “By their fruit you shall know them…” The fruit of the spirit is a result of edification.
+The growth of Christian love is a sign that a person has been learning and applying doctrine. “_By their fruit you shall know them…_” The fruit of the spirit is a result of edification.
 
 Personal love for God the Father is motivation for the reception of Bible doctrine.
 
