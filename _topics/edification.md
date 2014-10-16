@@ -82,7 +82,7 @@ The road to edification is paved with hundreds and thousands of lessons regardin
 
 The threefold purpose of the pastor is found in Eph. 4:12, “_for the purpose of equipping the saints, for the production of Christian service, for the edification of the body of Christ._”
 
-* The saints"refer to the family of God with emphasis on the baptism of the Spirit.
+* The "saints" refer to the family of God with emphasis on the baptism of the Spirit.
 
 * Equipping the saints refers to God’s grace policy and provision for the execution of the His plan.
 
