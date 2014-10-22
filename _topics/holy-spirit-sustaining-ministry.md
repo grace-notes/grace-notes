@@ -3,34 +3,20 @@ title: Holy Spirit Sustaining Ministry
 layout: lesson
 ---
 
-
-**Holy Spirit – Sustaining Ministry 2**
-
-The Holy Spirit’s Sustaining Ministry
-
 By R. B. Thieme, Jr., Pastor  
 Berachah Church, Houston, Texas
 
-During the period of the first advent, the humanity of Christ was
-sustained by the indwelling and filling of the Holy Spirit. The humanity
-of Christ had to be sustained by God the Holy Spirit, just as the
-members of the royal family, the church, would be sustained by the
-enabling power of the Holy Spirit during the Christian life.
+During the period of the first advent, the humanity of Christ was sustained by the indwelling and filling of the Holy Spirit. The humanity of Christ had to be sustained by God the Holy Spirit, just as the members of the royal family, the church, would be sustained by the enabling power of the Holy Spirit during the Christian life.
 
 **The Prophesy of this Ministry**
 
 Isa. 11:1-3, 42:1, 61:1a.
 
-**The sustaining ministry of the Holy Spirit occurs first at the virgin
-birth,**
+**The sustaining ministry of the Holy Spirit occurs first at the virgin birth,**
 
 Matthew 1:18-20; Heb 10:5.
 
-The Holy Spirit is the source or agent of conception. The Father planned
-Christ’s human body. The Holy Spirit was the agent carrying out the
-mechanics of the virgin birth. He provided the perfect chromosomes which
-fertilized the female ovum. The Holy Spirit is thus the agent in the
-execution of the hypostatic union.
+The Holy Spirit is the source or agent of conception. The Father planned Christ’s human body. The Holy Spirit was the agent carrying out the mechanics of the virgin birth. He provided the perfect chromosomes which fertilized the female ovum. The Holy Spirit is thus the agent in the execution of the hypostatic union.
 
 **The ministry of the Holy Spirit begins at the Incarnation:**John 3:34.
 
@@ -40,14 +26,14 @@ execution of the hypostatic union.
 2.  This is the total sustaining ministry to royalty. our Lord, in His
     humanity, was born into royalty as the son of David.
 
-3.  His spiritual royalty is different. His spiritual royalty is being
+2.  His spiritual royalty is different. His spiritual royalty is being
     totally sustained by the Holy Spirit.
 
-4.  There was no spiritual royalty in the Old Testament. The Holy Spirit
+2.  There was no spiritual royalty in the Old Testament. The Holy Spirit
     had no permanent indwelling in the physical body of any Old
     Testament believer in Christ.
 
-5.  Glorification of Christ by means of the ascension and session
+2.  Glorification of Christ by means of the ascension and session
     instituted battlefield royalty. This caused the age of Israel to be
     interrupted so that the royal family of God, the church, could be
     formed. This is accomplished by means of the baptism of the Holy
