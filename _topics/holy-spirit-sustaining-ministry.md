@@ -20,7 +20,7 @@ Matthew 1:18-20; Heb 10:5.
 
 The Holy Spirit is the source or agent of conception. The Father planned Christ’s human body. The Holy Spirit was the agent carrying out the mechanics of the virgin birth. He provided the perfect chromosomes which fertilized the female ovum. The Holy Spirit is thus the agent in the execution of the hypostatic union.
 
-**The ministry of the Holy Spirit begins at the Incarnation:**John 3:34.
+**The ministry of the Holy Spirit begins at the Incarnation:** John 3:34.
 
 1.  Not only does the Holy Spirit indwell the body of Christ, but He also filled His soul.
 
