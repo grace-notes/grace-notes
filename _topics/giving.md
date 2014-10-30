@@ -10,7 +10,7 @@ A false notion about money is that money will buy happiness. Only the word of Go
 
 The Bible points out several dangerous errors to which non Christians are subject. Evangelistic teaching should deal with these important issues to help unbelievers see the true issue of salvation through Christ. For example:
 
-* Salvation cannot be purchased with money. (Mark 8:36-37) Salvation has been paid for and not with silver and gold. (1 Pet. 18, 19)
+* Salvation cannot be purchased with money. (Mark 8:36-37) Salvation has been paid for and not with silver and gold. (1 Pet. 1:18, 19)
 
 * Money causes a rich person to put his faith in the wrong things. (Mark 10:23-25)
 
