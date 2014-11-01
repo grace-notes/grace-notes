@@ -26,9 +26,9 @@ Three reasons genuine believers sometimes doubt their salvation:
 
 2.  Some Christians are confused about life after salvation, about what the Lord provides for believers who commit sins and become carnal, out of fellowship. They do not know that one can be a genuine Christians and yet carnal, as in 1 Cor. 3:1.
 
-Topic: Salvation Doctrines
-
 2.  Some Christians have never really understood what God the Father has provided at the time of Salvation. They do not grasp the problem involved in God’s providing salvation, therefore how impossible it is for any human being to make any contribution to the solution for the problem of sin. These Christians do not see that the solution to the sin problem     lies **totally with God**. Man cannot contribute anything to the solution; man can do nothing at all to accomplish any aspect of his own salvation.
+
+Topic: Salvation Doctrines
 
 The problem in providing mankind with salvation is:
 
