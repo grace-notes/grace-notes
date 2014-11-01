@@ -28,7 +28,7 @@ Three reasons genuine believers sometimes doubt their salvation:
 
 Topic: Salvation Doctrines
 
-1.  Some Christians have never really understood what God the Father has provided at the time of Salvation. They do not grasp the problem involved in God’s providing salvation, therefore how impossible it is for any human being to make any contribution to the solution for the problem of sin. These Christians do not see that the solution to the sin problem     lies **totally with God**. Man cannot contribute anything to the solution; man can do nothing at all to accomplish any aspect of his own salvation.
+2.  Some Christians have never really understood what God the Father has provided at the time of Salvation. They do not grasp the problem involved in God’s providing salvation, therefore how impossible it is for any human being to make any contribution to the solution for the problem of sin. These Christians do not see that the solution to the sin problem     lies **totally with God**. Man cannot contribute anything to the solution; man can do nothing at all to accomplish any aspect of his own salvation.
 
 The problem in providing mankind with salvation is:
 
