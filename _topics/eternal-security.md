@@ -1,26 +1,20 @@
 ---
 title: Eternal Security
+description: An understanding of these concepts is required before there can be stability in our Christian lives.
 layout: lesson
 ---
 
+**Introduction <sup>[<sup>1</sup>](#sdfootnote1sym)</sup>**
 
-**Eternal Security**
-
-Introduction <sup>[<sup>1</sup>](#sdfootnote1sym)</sup>
-=======================================================
-
-There are two biblical concepts which contribute to a Christian’s having
-a sure grasp of salvation.
+There are two biblical concepts which contribute to a Christian’s having a sure grasp of salvation.
 
 1.  Assurance: “I know I am saved now.”
 
 2.  Security: “I know I am saved now and forever.”
 
-An understanding of these concepts is required before there can be
-stability in our Christian lives.
+An understanding of these concepts is required before there can be stability in our Christian lives.
 
-Think, for example, how a child’s knowledge of his place in his family
-contributes to a sense of safety and well-being. Furthermore, a good
+Think, for example, how a child’s knowledge of his place in his family contributes to a sense of safety and well-being. Furthermore, a good
 parent would never discipline a child by threatening the family
 relationship. Much more does God the Father assure us of our permanent
 relationship in His family; even the chastisement He metes out assures
@@ -28,104 +22,61 @@ us that we are His true children, not illegitimate.
 
 Three reasons genuine believers sometimes doubt their salvation:
 
-1.  Some Christians look inward to feelings. But feelings are never a
-    criterion for truth. Basing assurance on how we feel is no more
-    secure than the human emotions we have at the moment.
+1.  Some Christians look inward to feelings. But feelings are never a criterion for truth. Basing assurance on how we feel is no more secure than the human emotions we have at the moment.
 
-2.  Some Christians are confused about life after salvation, about what
-    the Lord provides for believers who commit sins and become carnal,
-    out of fellowship. They do not know that one can be a genuine
-    Christians and yet carnal, as in 1 Cor. 3:1.
+2.  Some Christians are confused about life after salvation, about what the Lord provides for believers who commit sins and become carnal, out of fellowship. They do not know that one can be a genuine Christians and yet carnal, as in 1 Cor. 3:1.
 
-### Topic: Salvation Doctrines
+Topic: Salvation Doctrines
 
-1.  Some Christians have never really understood what God the Father has
-    provided at the time of Salvation. They do not grasp the problem
-    involved in God’s providing salvation, therefore how impossible it
-    is for any human being to make any contribution to the solution for
-    the problem of sin.   
-    These Christians do not see that the solution to the sin problem
-    lies **totally with God**. Man cannot contribute anything to the
-    solution; man can do nothing at all to accomplish any aspect of his
-    own salvation.
+1.  Some Christians have never really understood what God the Father has provided at the time of Salvation. They do not grasp the problem involved in God’s providing salvation, therefore how impossible it is for any human being to make any contribution to the solution for the problem of sin. These Christians do not see that the solution to the sin problem     lies **totally with God**. Man cannot contribute anything to the solution; man can do nothing at all to accomplish any aspect of his own salvation.
 
 The problem in providing mankind with salvation is:
 
--   God is righteous; therefore He demands 100% perfection. (Rom. 3:23).
+* God is righteous; therefore He demands 100% perfection. (Rom. 3:23).
 
--   God is just, so He must release His full wrath on sin (Rom. 6:23).
+* God is just, so He must release His full wrath on sin (Rom. 6:23).
 
--   Yet, God is love and wants to save us (John 3:16).
+* Yet, God is love and wants to save us (John 3:16).
 
-It is sometimes difficult to see how these three ideas can be brought
-into harmony.
+It is sometimes difficult to see how these three ideas can be brought into harmony.
 
-Every person who lacks assurance harbors the thought, somewhere in the
-back of his mind, that he must make some contribution towards solving
-the problems of sin and alienation from God. He thinks that salvation is
-90% God’s and 10% his part. He can never rest because he can never be
-sure he has accomplished his part.
+Every person who lacks assurance harbors the thought, somewhere in the back of his mind, that he must make some contribution towards solving the problems of sin and alienation from God. He thinks that salvation is 90% God’s and 10% his part. He can never rest because he can never be sure he has accomplished his part.
 
-Any program that man devises can never be depended upon. Assurance of
-salvation is only possible when a person is confident that God is the
-provider of salvation – 100%.
+Any program that man devises can never be depended upon. Assurance of salvation is only possible when a person is confident that God is the provider of salvation – 100%.
 
-Approaches to Understanding Security
-====================================
+**Approaches to Understanding Security**
 
-Our salvation is based on the **divine purpose** of God. The Father, the
-Son, and the Holy Spirit all contribute to our salvation.
+Our salvation is based on the **divine purpose** of God. The Father, the Son, and the Holy Spirit all contribute to our salvation.
 
-#### It is the Father’s purpose to save us.
+*_It is the Father’s purpose to save us._*
 
-**Rom. 8:28-30.** And we know that God causes all things to work
-together for good to those who love God, to those who are called
-according to *His*purpose.
+**Rom. 8:28-30.** _And we know that God causes all things to work together for good to those who love God, to those who are called according to *His*purpose._
 
-For those whom He foreknew, He also predestined *to become*conformed to
-the image of His Son, so that He would be the firstborn among many
-brethren;
+_For those whom He foreknew, He also predestined *to become*conformed to the image of His Son, so that He would be the firstborn among many brethren;_
 
-and these whom He predestined, He also called; and these whom He called,
-He also justified; and these whom He justified, He also glorified.
+_and these whom He predestined, He also called; and these whom He called, He also justified; and these whom He justified, He also glorified._
 
-God’s purpose is introduced in Rom. 8:28, then explained in verses 29
-and 30. Notice that the same people who are *justified* are the ones who
-are *glorified*. Notice further that the word *glorified* is in the past
-tense. In the plan of God we are already glorified! Therefore, if anyone
-who was genuinely saved, losing that salvation would mean a failure of
-the specific purpose of God.
+God’s purpose is introduced in Rom. 8:28, then explained in verses 29 and 30. Notice that the same people who are *justified* are the ones who are *glorified*. Notice further that the word *glorified* is in the past tense. In the plan of God we are already glorified! Therefore, if anyone who was genuinely saved, losing that salvation would mean a failure of the specific purpose of God.
 
-#### It is the Father’s power that saves us.
+*_It is the Father’s power that saves us._*
 
-**John 10:27-29.**My sheep hear My voice, and I know them, and they
-follow Me;
+**John 10:27-29.** _My sheep hear My voice, and I know them, and they follow Me;_
 
-and I give eternal life to them, and they will never perish; and no one
-will snatch them out of My hand.
+_and I give eternal life to them, and they will never perish; and no one will snatch them out of My hand._
 
-My Father, who has given *them*to Me, is greater than all; and no one is
-able to snatch *them* out of the Father’s hand.
+_My Father, who has given *them*to Me, is greater than all; and no one is able to snatch *them* out of the Father’s hand._
 
-A believer is held by (1) God the Son’s hand, and (2) God the Father’s
-hand; we can never be let go.
+_A believer is held by (1) God the Son’s hand, and (2) God the Father’s hand; we can never be let go._
 
-This passage refers to people who have accepted Christ, the Lord says
-“My sheep…”. In verse 29 we wee that security rests in God’s ability to
-“hold on” to believers, ***not*** in a person’s ability to “hold on” to
-God. To question that security is to question this promise, and to
-question God’s ability.
+This passage refers to people who have accepted Christ, the Lord says “_My sheep…_”. In verse 29 we wee that security rests in God’s ability to “hold on” to believers, **not** in a person’s ability to “hold on” to God. To question that security is to question this promise, and to question God’s ability.
 
-God promises to save all who believe.
+*_God promises to save all who believe._*
 
-**John 5:24.**Truly, truly, I say to you, he who hears My word, and
-believes Him who sent Me, has eternal life, and does not come into
-judgment, but has passed out of death into life.
+**John 5:24.**Truly, truly, I say to you, he who hears My word, and believes Him who sent Me, has eternal life, and does not come into judgment, but has passed out of death into life.
 
-What is possessed in salvation? Eternal life!
+*_What is possessed in salvation? Eternal life!_*
 
-When does possession of this life take place? It takes place **now**.
-The one who believes in Christ **has** eternal life.
+When does possession of this life take place? It takes place **now**. The one who believes in Christ **has** eternal life.
 
 #### Salvation is linked to the Son’s prayer.
 
