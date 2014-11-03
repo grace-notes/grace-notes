@@ -82,13 +82,13 @@ Union with Christ is current in that the believer is identified with Christ in H
 
 * We share in His life, Eph. 2:5; Col. 2:13; 1 John 5:11,12.
 
-• In Him we have redemption and forgiveness of sins, Eph. 1:7; Col. 1:14.
+* In Him we have redemption and forgiveness of sins, Eph. 1:7; Col. 1:14.
 
 Union with Christ makes every believer equal at the point of salvation, Gal. 3:27,28.
 
 Union with Christ makes the believer perfect in the sight of God, Col. 2:9,10.
 
-Bible illustrations of Union with Christ:
+**Bible illustrations of Union with Christ:**
 
 * Vine and Branches, John 15:1-17
 
