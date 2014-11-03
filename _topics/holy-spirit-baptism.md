@@ -1,163 +1,100 @@
 ---
 title: Holy Spirit Baptism
+display_title: Baptism of the Holy Spirit
+description: The Holy Spirit’s work by which he places each believer into Union with Christ.
 layout: lesson
 ---
-
-
-**Baptism of the Holy Spirit 7**
-
-**The Baptism of the Holy Spirit**
-
 **Introduction.**
 
-**The baptism of the Holy Spirit is one of seven salvation ministries by
-God the Holy Spirit.**
+*_The baptism of the Holy Spirit is one of seven salvation ministries by God the Holy Spirit._*
 
 1. Efficacious grace
 
 2. Regeneration
 
-3. The baptism of the Holy Spirit
+2. The baptism of the Holy Spirit
 
-4. The indwelling of the Holy Spirit
+2. The indwelling of the Holy Spirit
 
-5. The filling of the Holy Spirit
+2. The filling of the Holy Spirit
 
-6. The sealing of the Holy Spirit
+2. The sealing of the Holy Spirit
 
-7. Spiritual gifts
+*. Spiritual gifts
 
-You can find a full description of the salvation ministries of the Holy
-Spirit in the topic “Holy Spirit, Salvation Ministries.”
+You can find a full description of the salvation ministries of the Holy Spirit in the topic “Holy Spirit, Salvation Ministries.”
 
-**The baptism of the Holy Spirit is one of seven Bible baptisms.**
+*_The baptism of the Holy Spirit is one of seven Bible baptisms._*
 
 1. The Baptism of Moses
 
 2. The Baptism of the Cup, or the Baptism of the Cross
 
-3. The Baptism of the Holy Spirit
+2. The Baptism of the Holy Spirit
 
-4. The Baptism of Fire
+2. The Baptism of Fire
 
-5. The Baptism of John
+2. The Baptism of John
 
-6. The Baptism of Jesus.
+2. The Baptism of Jesus.
 
-7. Christian Baptism, the water baptism of the believer
+2. Christian Baptism, the water baptism of the believer
 
 These topics are covered in the topic “Baptism.”
 
 **Definition.**
 
-The baptism of the Holy Spirit is a real baptism, an actual
-identification takes place. It is one of the seven ministries of the God
-the Holy Spirit at salvation, in which God the Holy Spirit, at the
-moment a person believes in Christ, enters the new believer into union
-with Christ.
+The baptism of the Holy Spirit is a real baptism, an actual identification takes place. It is one of the seven ministries of the God the Holy Spirit at salvation, in which God the Holy Spirit, at the moment a person believes in Christ, enters the new believer into union with Christ.
 
-The baptism of the Holy Spirit is the means of forming the royal family
-of God during the church age. It is a function of the omnipotence of the
-Holy Spirit at salvation. By being entered into union with Christ, we
-are adopted as royal family of God. We are a new spiritual species.
+The baptism of the Holy Spirit is the means of forming the royal family of God during the church age. It is a function of the omnipotence of the Holy Spirit at salvation. By being entered into union with Christ, we are adopted as royal family of God. We are a new spiritual species.
 
-This union with Christ is called positional sanctification or the
-sanctification of the body, Eph 5:25-27.
+This union with Christ is called positional sanctification or the sanctification of the body, Eph 5:25-27.
 
-The baptism of the Holy Spirit is not an emotional experience, 1 Cor
-12:13.
+The baptism of the Holy Spirit is not an emotional experience, 1 Cor 12:13.
 
-It is a function of the omnipotence of the Holy Spirit putting every
-believer into union with Christ, making him a new spiritual species.
+It is a function of the omnipotence of the Holy Spirit putting every believer into union with Christ, making him a new spiritual species.
 
 There is only one baptism that unifies the royal family of God.
 
-**1 Cor 12:13**, “For by means of one Spirit, we were all baptized into
-one body; whether Jews or Greeks, whether slaves of free, all were made
-to drink into one Spirit.”
+**1 Cor 12:13**, “_For by means of one Spirit, we were all baptized into one body; whether Jews or Greeks, whether slaves of free, all were made to drink into one Spirit._”
 
-**Eph 4:5**, “One Lord, one faith, one baptism.”
+**Eph 4:5**, “_One Lord, one faith, one baptism._”
 
-**Rom 6:3-5**, “Do you not know that all of us have been baptized into
-Jesus Christ? Therefore, we have been buried with Him through baptism
-into His death, in order that as Christ was raised again from the dead
-to the glory of the Father, we also might walk in newness of life. For
-if we have become united with Him in the likeness of His death , and not
-only this , we shall also be united in the likeness of His
-resurrection.”
+**Rom 6:3-5**, “_Do you not know that all of us have been baptized into Jesus Christ? Therefore, we have been buried with Him through baptism into His death, in order that as Christ was raised again from the dead to the glory of the Father, we also might walk in newness of life. For if we have become united with Him in the likeness of His death , and not only this , we shall also be united in the likeness of His resurrection._”
 
-The newness of life refers to our being a new spiritual species and
-royal family of God. So Rom 6:3-5 teaches identification with Christ in
-His death, burial, and resurrection.
+The newness of life refers to our being a new spiritual species and royal family of God. So Rom 6:3-5 teaches identification with Christ in His death, burial, and resurrection.
 
-The many references to positional sanctification, or the baptism of the
-Holy Spirit are often found in the preposition phrase EN + the locative
-of CHRISTOS, translated “in Christ.” Almost everywhere this phrase is
-found, it is reference to the baptism of the Holy Spirit and resulting
-union with Christ.
+The many references to positional sanctification, or the baptism of the Holy Spirit are often found in the preposition phrase EN + the locative of CHRISTOS, translated “in Christ.” Almost everywhere this phrase is found, it is reference to the baptism of the Holy Spirit and resulting union with Christ.
 
-**1 Cor 15:22**, “In Adam all die; so also in Christ shall all be made
-alive.” Cf. Rom 8:1.
+**1 Cor 15:22**, “_In Adam all die; so also in Christ shall all be made alive._” Cf. Rom 8:1.
 
-The baptism of the Holy Spirit is related to the church age only. This
-ministry of the Holy Spirit is not found in the Old Testament, and there
-are no eschatological references to it beyond the church age.
+The baptism of the Holy Spirit is related to the church age only. This ministry of the Holy Spirit is not found in the Old Testament, and there are no eschatological references to it beyond the church age.
 
-The baptism of the Holy Spirit is not the function of any spiritual
-gift.
+The baptism of the Holy Spirit is not the function of any spiritual gift.
 
-Because the baptism of the Holy Spirit is universally provided for all
-church age believers, it is not in any sense experiential. The baptism
-of the Holy Spirit is an act of the omnipotence of the Holy Spirit. Any
-time God uses His divine power, whether it is the omnipotence of God the
-Father, Son, or Holy Spirit, it excludes any form of experiential
-cooperation. That’s grace!
+Because the baptism of the Holy Spirit is universally provided for all church age believers, it is not in any sense experiential. The baptism of the Holy Spirit is an act of the omnipotence of the Holy Spirit. Any time God uses His divine power, whether it is the omnipotence of God the Father, Son, or Holy Spirit, it excludes any form of experiential cooperation. That’s grace!
 
-The baptism of the Holy Spirit could not occur until there was the
-strategic victory of Jesus Christ in the angelic conflict. The Levitical
-priesthood was inadequate for the church age. Now there was the need for
-a universal priesthood, since every believer was now a target of Satan.
+The baptism of the Holy Spirit could not occur until there was the strategic victory of Jesus Christ in the angelic conflict. The Levitical priesthood was inadequate for the church age. Now there was the need for a universal priesthood, since every believer was now a target of Satan.
 
-The baptism of the Holy Spirit occurred first in Jerusalem and included
-the gift of tongues to warn the Jews of the coming of the fifth cycle of
-discipline. Acts 2.
+The baptism of the Holy Spirit occurred first in Jerusalem and included the gift of tongues to warn the Jews of the coming of the fifth cycle of discipline. Acts 2.
 
-Union with Christ is a permanent identification which distinguishes
-Christianity from religion. In religion, man by man’s efforts seeks to
-gain the approval of God. In Christianity, the believer through union
-with Christ has a permanent relationship with God.
+Union with Christ is a permanent identification which distinguishes Christianity from religion. In religion, man by man’s efforts seeks to gain the approval of God. In Christianity, the believer through union with Christ has a permanent relationship with God.
 
-The baptism of the Holy Spirit forms the body of Christ, He being the
-head. Our Lord’s gift to His body is found in Rom 12; 1 Cor 12; Eph 4.
+The baptism of the Holy Spirit forms the body of Christ, He being the head. Our Lord’s gift to His body is found in Rom 12; 1 Cor 12; Eph 4.
 
 **The Baptism of the Holy Spirit Creates the Royal Family of God.**
 
-The baptism of the Holy Spirit is the means of providing a royal family
-for our Lord’s third royal title. The royal family of God also know as
-the universal Church or body of Christ, is formed at the moment of
-personal salvation through the baptism of the Holy Spirit.
+The baptism of the Holy Spirit is the means of providing a royal family for our Lord’s third royal title. The royal family of God also know as the universal Church or body of Christ, is formed at the moment of personal salvation through the baptism of the Holy Spirit.
 
-Equal privilege for all church age believers is based on the doctrine of
-the baptism of the Holy Spirit, a doctrine which involves the
-omnipotence of the Holy Spirit. Through the baptism of the Holy Spirit,
-equal privilege in the royal family of God is related to two doctrinal
-facts:
+Equal privilege for all church age believers is based on the doctrine of the baptism of the Holy Spirit, a doctrine which involves the omnipotence of the Holy Spirit. Through the baptism of the Holy Spirit, equal privilege in the royal family of God is related to two doctrinal facts:
 
-a. The omnipotence of the Holy Spirit creates a royal family of God, the
-body of Christ, as an organism, not as an institution.
+a. The omnipotence of the Holy Spirit creates a royal family of God, the body of Christ, as an organism, not as an institution.
 
-b. Simultaneously, from the baptism of the Holy Spirit, the omnipotence
-of the Holy Spirit creates a new spiritual species for spiritual living
-(not for psychological living) in the devil’s world. Every church age
-believer is a part of this unique spiritual species.
+b. Simultaneously, from the baptism of the Holy Spirit, the omnipotence of the Holy Spirit creates a new spiritual species for spiritual living (not for psychological living) in the devil’s world. Every church age believer is a part of this unique spiritual species.
 
-Furthermore, the omnipotence of the Holy Spirit also provides equal
-opportunity for the fulfillment of the one plan of God through walking
-in fellowship under the control of the Holy Spirit.
+Furthermore, the omnipotence of the Holy Spirit also provides equal opportunity for the fulfillment of the one plan of God through walking in fellowship under the control of the Holy Spirit.
 
-The teaching ministry of the Spirit in a believer who is walking in
-fellowship is the fulfilling power of the Christian way of life. The
-Holy Spirit is a teacher, as in Jn 14:26, 16:12-14; 1 Cor 2:9-16; 1 Jn
+The teaching ministry of the Spirit in a believer who is walking in fellowship is the fulfilling power of the Christian way of life. The Holy Spirit is a teacher, as in Jn 14:26, 16:12-14; 1 Cor 2:9-16; 1 Jn
 2:27.
 
 God the Holy Spirit is the One who teaches us Bible truth, which gives
@@ -308,228 +245,109 @@ This prophecy was fulfilled ten days after our Lord uttered it in Acts
 
 **The Baptism of the Spirit Begins the Church Age.**
 
-The prophecies about the baptism of the Holy Spirit were fulfilled on
-the day the church age began, around 32 A. D. Jesus prophesied the
-church age as future,
+The prophecies about the baptism of the Holy Spirit were fulfilled on the day the church age began, around 32 A. D. Jesus prophesied the church age as future,
 
-**Mt 16:18**. “Jesus said, \`I say to you [Peter] that you are PETROS
-[little stone] and on this PETRA [giant rock, Jesus Christ] I will build
-My church; and the gates of hell will not overcome it.’”
+**Mt 16:18**. “_Jesus said, \`I say to you [Peter] that you are PETROS [little stone] and on this PETRA [giant rock, Jesus Christ] I will build My church; and the gates of hell will not overcome it.’_”
 
-The future active indicative of OIKODOMEO, translated “will build” is
-important, for it indicates that no Church had existed up until that
-time, and no church would exist until after the resurrection and
-ascension of Christ. God the Father will actually do the building, but
-it will be built on Jesus Christ, the Rock.
+The future active indicative of OIKODOMEO, translated “will build” is important, for it indicates that no Church had existed up until that time, and no church would exist until after the resurrection and ascension of Christ. God the Father will actually do the building, but it will be built on Jesus Christ, the Rock.
 
-On the day of Pentecost, the baptism of the Spirit took all the
-believers present and entered them into union with Christ. At the same
-time, God the Son gave the first spiritual gifts. One of the first gifts
-to be exercised was the gift of tongues, simply because in Jerusalem
-during the Feast of Pentecost were thousands of Jews who spoke many
-different languages.
+On the day of Pentecost, the baptism of the Spirit took all the believers present and entered them into union with Christ. At the same time, God the Son gave the first spiritual gifts. One of the first gifts to be exercised was the gift of tongues, simply because in Jerusalem during the Feast of Pentecost were thousands of Jews who spoke many different languages.
 
-According to Isa. 28, the gift of tongues was used as a last warning to
-Israel that they were going out as a client nation to God.
+According to Isa. 28, the gift of tongues was used as a last warning to Israel that they were going out as a client nation to God.
 
-Though not mentioned in Acts 2, we know the baptism of the Spirit
-occurred on the day of Pentecost because of Peter’s retrospection in
-Acts 11. At the Gentile Pentecost, Acts 11:15-17, Peter recognized that
-what happened to them on the day of Pentecost in Jerusalem (Acts 2) was
-a fulfillment of the prophecy of Acts 1:5. In retrospective exposition,
-Peter said, “And as I [Peter] began to speak, the Holy Spirit fell on
-them just as He did on us at the beginning [Pentecost, Acts 2:3]. Then I
-remembered the word of the Lord, how He used to say [Acts 1:5 is the one
-recorded example], \`John baptized with water, but you will be baptized
-with the Holy Spirit.‘Therefore, if God gave to them [Gentiles] the same
-gift as to us [Jews], when they had believed in the Lord Jesus, who was
-I that I should stand in God’s way?’”
+Though not mentioned in Acts 2, we know the baptism of the Spirit  occurred on the day of Pentecost because of Peter’s retrospection in Acts 11. At the Gentile Pentecost, Acts 11:15-17, Peter recognized that what happened to them on the day of Pentecost in Jerusalem (Acts 2) was a fulfillment of the prophecy of Acts 1:5. In retrospective exposition, Peter said, “And as I [Peter] began to speak, the Holy Spirit fell on them just as He did on us at the beginning [Pentecost, Acts 2:3]. Then I
+remembered the word of the Lord, how He used to say [Acts 1:5 is the one recorded example], \`John baptized with water, but you will be baptized with the Holy Spirit.‘Therefore, if God gave to them [Gentiles] the same gift as to us [Jews], when they had believed in the Lord Jesus, who was I that I should stand in God’s way?’”
 
-“The Holy Spirit fell on them” refers to an experience Peter had in
-Caesarea. Gentiles came to his place in Joppa and asked him to come to
-Caesarea, which he did. As Peter began to speak on that occasion, the
-Gentiles received the baptism of the Holy Spirit as did the Jews on the
-day of Pentecost.
+“_The Holy Spirit fell on them_” refers to an experience Peter had in Caesarea. Gentiles came to his place in Joppa and asked him to come to Caesarea, which he did. As Peter began to speak on that occasion, the Gentiles received the baptism of the Holy Spirit as did the Jews on the day of Pentecost.
 
-Peter recognized the Gentiles were a part of the body of Christ, for
-they had their own Pentecost, as it were. Therefore, the baptism of the
-Spirit applied equally to both Jew and Gentile; it was not a Jewish
-monopoly.
+Peter recognized the Gentiles were a part of the body of Christ, for they had their own Pentecost, as it were. Therefore, the baptism of the Spirit applied equally to both Jew and Gentile; it was not a Jewish monopoly.
 
 **The Baptism of the Holy Spirit Creates a New Spiritual Species**
 
-There have only been two new species created in human history. Israel
-was created as a new racial species; and the Church is a new spiritual
-species.
+There have only been two new species created in human history. Israel was created as a new racial species; and the Church is a new spiritual species.
 
-From the new racial species came the client nations to God in the
-dispensation of Israel and in the millennium.
+From the new racial species came the client nations to God in the dispensation of Israel and in the millennium.
 
-From the new spiritual species, the Church becomes the basis for Gentile
-client nations to God.
+From the new spiritual species, the Church becomes the basis for Gentile client nations to God.
 
-As a result of the baptism of the Spirit, the new spiritual species was
-created which makes no distinction between Jew and Gentile. There is no
-racial distinction in Christ.
+As a result of the baptism of the Spirit, the new spiritual species was created which makes no distinction between Jew and Gentile. There is no racial distinction in Christ.
 
-In Gal 6:15, this is described as “neither circumcision nor
-uncircumcision, but a new [spiritual] species.”
+In Gal 6:15, this is described as “neither circumcision nor uncircumcision, but a new [spiritual] species.”
 
-**2 Cor 5:17**, “Therefore, if anyone is in Christ, he is a new
-[spiritual] species. The old things have lost their power; behold, new
-things have come.”
+**2 Cor 5:17**, “_Therefore, if anyone is in Christ, he is a new [spiritual] species. The old things have lost their power; behold, new things have come._”
 
-At the moment of entering the believer into union with Christ
-(positional sanctification), the omnipotence of the Holy Spirit creates
-a new spiritual species through the baptism of the Holy Spirit. The new
-spiritual species is designed for unprecedented availability and
-delegation of divine power.
+At the moment of entering the believer into union with Christ (positional sanctification), the omnipotence of the Holy Spirit creates a new spiritual species through the baptism of the Holy Spirit. The new spiritual species is designed for unprecedented availability and delegation of divine power.
 
-People like to think of “old things” as whatever were their bad habits
-which they have given up in the energy of the flesh. However, what you
-can do in the energy of the flesh cannot make you a new creature in
-Christ Jesus. Being made a new creature in Christ Jesus depends on the
-power of the Holy Spirit.
+People like to think of “old things” as whatever were their bad habits which they have given up in the energy of the flesh. However, what you can do in the energy of the flesh cannot make you a new creature in Christ Jesus. Being made a new creature in Christ Jesus depends on the power of the Holy Spirit.
 
-However, “the old things have lost their power” refers to:
+However, “_the old things have lost their power_” refers to:
 
--   Pre-salvation influences, which may continue if there is no
-    perception of doctrine and spiritual growth;
+* Pre-salvation influences, which may continue if there is no     perception of doctrine and spiritual growth;
 
--   Position in Adam and resultant spiritual death, Rom 5:12, 1 Cor
-    15:22, “In Adam all die; in Christ shall all be made alive.”
+* Position in Adam and resultant spiritual death, Rom 5:12, 1 Cor 15:22, “_In Adam all die; in Christ shall all be made alive._”
 
--   The old sin nature. The old sin nature has lost its power; you can
-    only give it back its power experientially through the function of
-    your own negative volition;
+* The old sin nature. The old sin nature has lost its power; you can only give it back its power experientially through the function of     your own negative volition;
 
--   The “old things” include genetic, environmental, and volitional
-    handicaps. Whatever were your handicaps before salvation, they have
-    lost their power over you and are no longer the handicaps to keep
-    you from advancing in the spiritual life;
+* The “_old things_” include genetic, environmental, and volitional handicaps. Whatever were your handicaps before salvation, they have lost their power over you and are no longer the handicaps to keep you from advancing in the spiritual life;
 
--   The function of human power in Satan’s cosmic system. By an act of
-    negative volition, you can get under Satan’s power. But divine power
-    has superseded cosmic power now.
+* The function of human power in Satan’s cosmic system. By an act of negative volition, you can get under Satan’s power. But divine power has superseded cosmic power now.
 
--   People emphasis taking priority over God emphasis. The provision of
-    divine power to the royal family of God makes it possible for
-    relationship with God to take precedence over relationship with
-    people.
+* People emphasis taking priority over God emphasis. The provision of divine power to the royal family of God makes it possible for relationship with God to take precedence over relationship with people.
 
-“New things have come” refers to:
+“_New things have come_” refers to:
 
--   The baptism of the Spirit.
+* The baptism of the Spirit.
 
--   The plan of God.
+* The plan of God.
 
--   The unique equality factors in the protocol plan.
+* The unique equality factors in the protocol plan.
 
--   Our very own portfolio of invisible assets (blessings) prepared for
-    us by the omnipotence of God the Father.
+* Our very own portfolio of invisible assets (blessings) prepared for us by the omnipotence of God the Father.
 
--   Our unique royal commissions of royal priesthood and royal
-    ambassadorship. As a royal priest, we represent ourselves before
-    God. As a royal ambassador, we represent God before the world.
+* Our unique royal commissions of royal priesthood and royal ambassadorship. As a royal priest, we represent ourselves before God. As a royal ambassador, we represent God before the world.
 
--   The unique mystery doctrines.
+* The unique mystery doctrines.
 
--   The indwelling of all three persons of the Trinity.
+* The indwelling of all three persons of the Trinity.
 
--   The unique availability of divine power.
+* The unique availability of divine power.
 
--   This is a dispensation of no prophecy, only historical trends.
+* This is a dispensation of no prophecy, only historical trends.
 
 **The Application of the Baptism of the Spirit.**
 
-The baptism of the Holy Spirit demands that the believer think of
-himself as a person, totally apart from any form of superiority or
-inferiority. You are not to think of yourself as superior or inferior,
-or with any form of human prejudice or hypocrisy.
+The baptism of the Holy Spirit demands that the believer think of himself as a person, totally apart from any form of superiority or inferiority. You are not to think of yourself as superior or inferior, or with any form of human prejudice or hypocrisy.
 
 Spiritual living must replace psychological living.
 
-**Gal 3:26-28**, “For you are all the sons [children] of God through
-faith in Christ Jesus. For all of you, who were baptized into Christ,
-have clothed yourselves with Christ [union with Christ]. Therefore,
-there is neither Jew nor Gentile [no racial distinctions in Christ],
-there is neither slave nor free [no social distinctions in Christ],
-there is neither male nor female [no sexual distinctions in Christ]; for
-you are all one in Christ.”
+**Gal 3:26-28**, “_For you are all the sons [children] of God through faith in Christ Jesus. For all of you, who were baptized into Christ, have clothed yourselves with Christ [union with Christ]. Therefore, there is neither Jew nor Gentile [no racial distinctions in Christ], there is neither slave nor free [no social distinctions in Christ], there is neither male nor female [no sexual distinctions in Christ]; for you are all one in Christ._”
 
-The entire world (the unbeliever) is not the family of God. Only those
-who believe in Christ become the children of God, at which point the
-baptism of the Holy Spirit makes us in the church age royal family of
-God.
+The entire world (the unbeliever) is not the family of God. Only those who believe in Christ become the children of God, at which point the baptism of the Holy Spirit makes us in the church age royal family of God.
 
-All church age believers have been baptized into Christ, losers and
-winners, spiritual and cosmic believers alike.
+All church age believers have been baptized into Christ, losers and winners, spiritual and cosmic believers alike.
 
-“Clothed yourselves with Christ” means we are in union with the head.
-The head can exist without the body, but the body cannot exist without
-the head. In other words, the great power experiment of the hypostatic
-union, in which our Lord relied upon the omnipotence of God the Father
-and the omnipotence of the Holy Spirit, has overflowed to the church
-age.
+“_Clothed yourselves with Christ_” means we are in union with the head. The head can exist without the body, but the body cannot exist without the head. In other words, the great power experiment of the hypostatic union, in which our Lord relied upon the omnipotence of God the Father and the omnipotence of the Holy Spirit, has overflowed to the church age.
 
-Jesus Christ was sustained in His humanity by the omnipotence of God the
-Father and the omnipotence of the Holy Spirit. We have been “clothed
-with Christ” in the sense that, through the baptism of the Holy Spirit,
-we have become a part of that same great power experiment, as the body
-of the head, Jesus Christ.
+Jesus Christ was sustained in His humanity by the omnipotence of God the Father and the omnipotence of the Holy Spirit. We have been “clothed with Christ” in the sense that, through the baptism of the Holy Spirit, we have become a part of that same great power experiment, as the body of the head, Jesus Christ.
 
-Jew and Greek are two distinct races, and the most famous races of the
-ancient world. The Jews thought of themselves as superior because of the
-Mosaic Law. The Greeks thought of themselves as superior because of
-their great history of thought and cultural genius in Attica and Ionia
-in the fourth and fifth centuries B.C. The Jews despised the culture of
-the Greeks. The Greeks viewed the Jew as having no culture, no
-philosophical background. So there was a great racial antagonism between
+Jew and Greek are two distinct races, and the most famous races of the ancient world. The Jews thought of themselves as superior because of the Mosaic Law. The Greeks thought of themselves as superior because of their great history of thought and cultural genius in Attica and Ionia in the fourth and fifth centuries B.C. The Jews despised the culture of the Greeks. The Greeks viewed the Jew as having no culture, no philosophical background. So there was a great racial antagonism between
 these two races of the ancient world.
 
-Racial prejudice is evil. Stupid people think in terms of racism. We do
-not have the right to think this way. Every time you are guilty of
-racial prejudice, confess it! Even the psychological conclusion that
-every race has its good and bad ones is at best human viewpoint.
+Racial prejudice is evil. Stupid people think in terms of racism. We do not have the right to think this way. Every time you are guilty of racial prejudice, confess it! Even the psychological conclusion that every race has its good and bad ones is at best human viewpoint.
 
-The application of this doctrine is to begin to think of yourself as a
-person, not as a race. There is no such thing as either a superior or
-inferior race in Christianity. The royal family of God is the body of
-Christ, and all races in the world have responded to the Gospel and
-believed in Jesus Christ. Race is no issue, for every church age
-believer is in union with Christ.
+The application of this doctrine is to begin to think of yourself as a person, not as a race. There is no such thing as either a superior or inferior race in Christianity. The royal family of God is the body of Christ, and all races in the world have responded to the Gospel and believed in Jesus Christ. Race is no issue, for every church age believer is in union with Christ.
 
-“There is neither slave nor free.” At the time this was written in the
-Roman Empire, there were a tremendous number of slaves. Many of the
-slaves were among the first church age believers. So this refers to
-social distinctions as they existed at the time of writing.
+“_There is neither slave nor free._” At the time this was written in the Roman Empire, there were a tremendous number of slaves. Many of the slaves were among the first church age believers. So this refers to social distinctions as they existed at the time of writing.
 
-From the moment you believe in Christ, you are no longer to look at
-other believers in terms of social distinctions. You are no longer to
-regard any person as being socially beneath you or above you. Social
-distinctions are removed by the baptism of the Holy Spirit.
+From the moment you believe in Christ, you are no longer to look at other believers in terms of social distinctions. You are no longer to regard any person as being socially beneath you or above you. Social distinctions are removed by the baptism of the Holy Spirit.
 
-“There is neither male nor female.” This helps to illustrate the
-principle; for boys will always be boys, and girls will always be girls.
-The difference between the two is obvious. However, the point here is
-that the old cultural, psychological distinctions which have been used
-for years, i.e., that one sex is better than the other, are all gone
-with the baptism of the Holy Spirit. As a believer, to say you are
-better than a man or woman means you’\\are arrogant.
+“_There is neither male nor female._” This helps to illustrate the principle; for boys will always be boys, and girls will always be girls. The difference between the two is obvious. However, the point here is that the old cultural, psychological distinctions which have been used for years, i.e., that one sex is better than the other, are all gone with the baptism of the Holy Spirit. As a believer, to say you are better than a man or woman means you’\\are arrogant.
 
-This does not change authority principles which still stand as a part of
-establishment. But authority does not connote superiority in the royal
-family of God.
+This does not change authority principles which still stand as a part of establishment. But authority does not connote superiority in the royal family of God.
 
-In your spiritual life, you no longer look at a man or woman through
-love or hatred, but spiritually you regard them as a member of the royal
-family of God. This is the only true non-sexual discrimination.
+In your spiritual life, you no longer look at a man or woman through love or hatred, but spiritually you regard them as a member of the royal family of God. This is the only true non-sexual discrimination.
 
-Christians involved in the sexual issues of our day (such as women’s
-liberation) are in psychological living. There is no place for such
-thinking. It is true there are certain things a man can do and a woman
-cannot, and vice-versa. But as we look at other believers, we must
-regard them as being just as much royal family of God as we are.
+Christians involved in the sexual issues of our day (such as women’s liberation) are in psychological living. There is no place for such thinking. It is true there are certain things a man can do and a woman cannot, and vice-versa. But as we look at other believers, we must regard them as being just as much royal family of God as we are.
 
 **Bibliography** (principal sources):
 
