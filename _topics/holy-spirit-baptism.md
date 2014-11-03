@@ -20,7 +20,7 @@ layout: lesson
 
 2. The sealing of the Holy Spirit
 
-** Spiritual gifts**
+**Spiritual gifts**
 
 You can find a full description of the salvation ministries of the Holy Spirit in the topic “Holy Spirit, Salvation Ministries.”
 
