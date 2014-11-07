@@ -1,6 +1,6 @@
 ---
 title: Barnabas
-display_title: Barnabas
+description: The Acts of the Apostles describes Barnabas as 'a good man, full of the Holy Spirit and of faith' (Acts 6:24). [NOV 2012]
 layout: lesson
 ---
 
