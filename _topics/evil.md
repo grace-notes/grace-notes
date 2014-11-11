@@ -356,9 +356,9 @@ Ps.37:16-19, “_They_ [positive believers] _will not be ashamed in the time of 
 
 Ps. 91:10, 97:10, 119:101, 121:7; Prov. 2:10-14.
 
-Prov 1:33, “He who listens to Me shall live in security, and shall be at ease without fear of Evil.”
+Prov 1:33, “_He who listens to Me shall live in security, and shall be at ease without fear of Evil._”
 
-Prov 16:6, “By occupation with the Lord, one avoids Evil.”
+Prov 16:6, “_By occupation with the Lord, one avoids Evil._”
 
 Prov 19:23 teaches that there is divine protection from Evil all around.
 
