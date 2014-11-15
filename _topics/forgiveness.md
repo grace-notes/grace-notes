@@ -20,5 +20,3 @@ As a growing Christian, you have many other kinds of prosperity, by the Grace of
 Wherever in your life you find that someone else owes you something, you have the wherewithal to forgive him! **God has forgiven all of us who are absolutely without resources of our own**. And He is not expecting or demanding some kind of payment in return for His Grace gifts. And we are to be channels of Grace to the world. “_Out of your innermost being shall flow rivers of living water._” (John 7:38) 
 
 This topic of forgiveness is part of a larger Grace Notes publication on the doctrine of Grace. 
-
-Grace Notes**1705 Aggie Lane, Austin, Texas 78757**
