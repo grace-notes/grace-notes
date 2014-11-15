@@ -3,78 +3,33 @@ title: Grace
 layout: lesson
 ---
 
+**Introduction**
 
-**Grace 13**
+God the Father always thinks grace. Whether He is dealing with nations or individuals, whether he is exercising His divine justice, wrath, love, or mercy, in whatever dispensation or time frame, at all times and in all circumstances, the grace of God influences His thoughts and actions.
 
-**Grace**
+The absolute righteousness and justice of God the Father demand perfection in us. But we are “sinners, condemned, unclean.” The Father’s perfect justice demands a just penalty for sin - “_the soul that sinneth, it shall die._”
 
-Introduction
-------------
+But the Father, in His love for us, seeing that we could not meet His standards, sent His Son to bear our penalty so that we “_might be made the righteousness of God in Him._” (2 Cor. 5:21) Righteousness was imputed to us on the sole condition of our faith in Jesus Christ, just as “_Abraham believed God and it was counted unto him for righteousness._” (Gen. 15:6)
 
-God the Father always thinks grace. Whether He is dealing with nations
-or individuals, whether he is exercising His divine justice, wrath,
-love, or mercy, in whatever dispensation or time frame, at all times and
-in all circumstances, the grace of God influences His thoughts and
-actions.
+God the Father is now able to look upon us as righteous. And He is able to express His love for us in countless ways during our lifetime. The word “grace” is used to refer to God’s giving to us out of His love for us, a giving that is unrestricted because our former condemnation has been removed, our penalty has been paid, God’s righteousness and justice have been satisfied, and we are “in Christ” and share the love that the Father has for His own son.
 
-The absolute righteousness and justice of God the Father demand
-perfection in us. But we are “sinners, condemned, unclean.” The Father’s
-perfect justice demands a just penalty for sin - “the soul that sinneth,
-it shall die.”
+Mastery of the Bible’s teaching about grace is the most important goal of the Christian way of life. Your productivity as a believer, your ability to function effectively as member of your local church, your effectiveness in the use of your spiritual gifts in reaching out to others are all absolutely dependent on how well you understand and use grace principles. The following are some of the reasons why the subject of grace is so important to every Christian:
 
-But the Father, in His love for us, seeing that we could not meet His
-standards, sent His Son to bear our penalty so that we “might be made
-the righteousness of God in Him.” (2 Cor. 5:21) Righteousness was
-imputed to us on the sole condition of our faith in Jesus Christ, just
-as “Abraham believed God and it was counted unto him for righteousness.”
-(Gen. 15:6)
+* Grace is the most important single concept in the Bible. Salvation is “by grace through faith”, and the Christian way of life functions entirely on grace principles.
 
-God the Father is now able to look upon us as righteous. And He is able
-to express His love for us in countless ways during our lifetime. The
-word “grace” is used to refer to God’s giving to us out of His love for
-us, a giving that is unrestricted because our former condemnation has
-been removed, our penalty has been paid, God’s righteousness and justice
-have been satisfied, and we are “in Christ” and share the love that the
-Father has for His own son.
+* Grace provides the foundational structure for all Bible study. Eph. 2
 
-Mastery of the Bible’s teaching about grace is the most important goal
-of the Christian way of life. Your productivity as a believer, your
-ability to function effectively as member of your local church, your
-effectiveness in the use of your spiritual gifts in reaching out to
-others are all absolutely dependent on how well you understand and use
-grace principles. The following are some of the reasons why the subject
-of grace is so important to every Christian:
+* Knowledge of grace principles gives believers great knowledge and confidence in God’s plan, His provisions and His* blessings.
 
-• Grace is the most important single concept in the Bible. Salvation is
-“by grace through faith”, and the Christian way of life functions
-entirely on grace principles.
+* The doctrine of grace gives believers confidence in witnessing and teaching, both for evangelism and the Christian way of life. Grace gives Christians insight into the workings of society and God’s actual intentions regarding the future.
 
-• Grace provides the foundational structure for all Bible study. Eph. 2
+* Grace convinces believers that human righteousness is completely out of the picture.
 
-• Knowledge of grace principles gives believers great knowledge and
-confidence in God’s plan, His provisions and His blessings.
+* Through grace, believers become “conduits of grace” to society. Families become grace families; churches become grace churches, centers of grace influence.
 
-• The doctrine of grace gives believers confidence in witnessing and
-teaching, both for evangelism and the Christian way of life. Grace gives
-Christians insight into the workings of society and God’s actual
-intentions regarding the future.
+The goal of this study, then, is to learn how God thinks and how we can have “divine viewpoint” in our own thinking. With Jesus Christ as the “chief cornerstone”, we develop the “foundation” of the doctrine of grace, from the “apostles and prophets” by studying the Bible vocabulary dealing with grace, by developing principles of the doctrine of grace, and by illustration and application.
 
-• Grace convinces believers that human righteousness is completely out
-of the picture.
-
-• Through grace, believers become “conduits of grace” to society.
-Families become grace families; churches become grace churches, centers
-of grace influence.
-
-The goal of this study, then, is to learn how God thinks and how we can
-have “divine viewpoint” in our own thinking. With Jesus Christ as the
-“chief cornerstone”, we develop the “foundation” of the doctrine of
-grace, from the “apostles and prophets” by studying the Bible vocabulary
-dealing with grace, by developing principles of the doctrine of grace,
-and by illustration and application.
-
-Etymology: Bible Vocabulary Related to Grace
---------------------------------------------
+**Etymology: Bible Vocabulary Related to Grace**
 
 This study contains a thorough review of all words in the Bible which
 are related to the topic of grace. The context of each verse was
