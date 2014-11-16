@@ -1,5 +1,6 @@
 ---
 title: Grace
+description: A thorough treatment of the most important doctrine of the Christian life. The work of God and the Plan of God are completely based on Grace.
 layout: lesson
 ---
 
