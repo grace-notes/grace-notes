@@ -31,300 +31,156 @@ The goal of this study, then, is to learn how God thinks and how we can have “
 
 **Etymology: Bible Vocabulary Related to Grace**
 
-This study contains a thorough review of all words in the Bible which
-are related to the topic of grace. The context of each verse was
-studied, especially considering it with respect to etymology, doctrine,
-and application. Word study and doctrinal source materials include the
-following:
+This study contains a thorough review of all words in the Bible which are related to the topic of grace. The context of each verse was studied, especially considering it with respect to etymology, doctrine, and application. Word study and doctrinal source materials include the following:
 
-Vine, Expository Dictionary of New Testament Words
+* Vine, Expository Dictionary of New Testament Words
 
-Moulton and Milligan: The Vocabulary of the Greek New Testament
+* Moulton and Milligan: The Vocabulary of the Greek New Testament
 
-Kittel’s Greek Lexicon
+* Kittel’s Greek Lexicon
 
-Various references to the Greek of the Septuagint
+* Various references to the Greek of the Septuagint
 
-Chafer, L.S.: Systematic Theology
+* Chafer, L.S.: Systematic Theology
 
-Books and Tapes by R. B. Thieme and Chester McCalley
+* Books and Tapes by R. B. Thieme and Chester McCalley
 
-The Grace vocabulary of the Bible begins with the Greek word
-(**chara**), “joy; gladness”. This word was widely used to express the
-idea of a joyous response to something good; it sometimes meant
-“festival” or “wedding”. And (**chara**) was widely used as a proper
-name, just as many girls today are named “Grace.”!
+The Grace vocabulary of the Bible begins with the Greek word (**chara**), “joy; gladness”. This word was widely used to express the idea of a joyous response to something good; it sometimes meant “festival” or “wedding”. And (**chara**) was widely used as a proper name, just as many girls today are named “Grace.”!
 
-In the Oxyrhyncus Papyrii [P Oxy VIII, 1162], a Christian man’s personal
-letter included the greeting, “Leon, elder, to the elders and deacons,
-beloved brothers in the Lord, fullness of joy (**chara**).” The word
-(**chara**) is used in the following Bible passages:
+In the Oxyrhyncus Papyrii [P Oxy VIII, 1162], a Christian man’s personal letter included the greeting, “Leon, elder, to the elders and deacons, beloved brothers in the Lord, fullness of joy (**chara**).” The word (**chara**) is used in the following Bible passages:
 
-**Matt. 2:10.** “When they saw the star, they rejoiced with exceeding
-great joy (chara).”
+* **Matt. 2:10.** “When they saw the star, they rejoiced with exceeding great joy (chara).”
 
-**Matt. 5:12.**“Rejoice and be exceeding glad (chara): for great is your
-reward in heaven…”
+* **Matt. 5:12.**“Rejoice and be exceeding glad (chara): for great is your reward in heaven…”
 
-**Matt. 13:44.**“Again, the kingdom of heaven is like treasure hid in a
-field; when a man has found it, he hides, and for joy (chara) thereof
-goes and sells all that he has, and buys that field.”
+* **Matt. 13:44.**“Again, the kingdom of heaven is like treasure hid in a field; when a man has found it, he hides, and for joy (chara) thereof goes and sells all that he has, and buys that field.”
 
-**Matt. 18:13 describes the Lord’s joy (chara) at finding the lost
-sheep.**
+* **Matt. 18:13 describes the Lord’s joy (chara) at finding the lost sheep.**
 
-**Matt. 25:21, 23.**“His lord said unto him, Well done, good and
-faithful servant: you have been faithful over a few things, I will make
-thee ruler over many things: enter into the joy (chara) of thy lord.”
+* **Matt. 25:21, 23.**“His lord said unto him, Well done, good and faithful servant: you have been faithful over a few things, I will make thee ruler over many things: enter into the joy (chara) of thy lord.”
 
-We begin to see the relationship between joy and that which causes joy,
-namely, the favor and bounty which we receive from the Lord.
+We begin to see the relationship between joy and that which causes joy, namely, the favor and bounty which we receive from the Lord.
 
-**Luke 2:10. .**.behold, I bring you good tidings of great joy (chara),
-which shall be to all people." This emphasizes the idea of CHARA as an
-occasion of rejoicing.
+* **Luke 2:10. .**.behold, I bring you good tidings of great joy (chara), which shall be to all people." This emphasizes the idea of CHARA as an occasion of rejoicing.
 
-**Phil. 4:1.**Therefore, my brethren dearly beloved and longed for, my
-joy (chara) and crown, so stand fast in the Lord**…"**
+* **Phil. 4:1.**Therefore, my brethren dearly beloved and longed for, my joy (chara) and crown, so stand fast in the Lord**…"**
 
-**1 Thess. 2:19, 20.**For what is our hope, or joy (chara), or crown of
-rejoicing? Are not even ye in the presence of our Lord Jesus Christ at
-his Coming? For ye are our glory and hope."
+* **1 Thess. 2:19, 20.**For what is our hope, or joy (chara), or crown of rejoicing? Are not even ye in the presence of our Lord Jesus Christ at his Coming? For ye are our glory and hope."
 
-Related words are the verb (**chairo**), “to rejoice; to be glad; to be
-joyful” and the word , (**chaire**), used as a greeting “Hail! or
-Health!” upon meeting or separating and used widely as a salutation or
-closing of letters.
+Related words are the verb (**chairo**), “to rejoice; to be glad; to be joyful” and the word , (**chaire**), used as a greeting “Hail! or Health!” upon meeting or separating and used widely as a salutation or closing of letters.
 
-**Acts 15:23.**And they wrote letters by them after this manner: The
-apostles and elders and brethren send greeting (chairo) unto the
-brethren which are of the Gentiles in Antioch and Syria and Cilicia.
+* **Acts 15:23.**And they wrote letters by them after this manner: The apostles and elders and brethren send greeting (chairo) unto the brethren which are of the Gentiles in Antioch and Syria and Cilicia.
 
-**Matt. 26:49.**Judas…came to Jesus and said, HAIL, master; and kissed
-him.
+* **Matt. 26:49.**Judas…came to Jesus and said, HAIL, master; and kissed him.
 
-**Matt. 27:29. “HAIL, King of the Jews…**” was shouted in derision at
-Christ before His crucifixion.
+* **Matt. 27:29. “HAIL, King of the Jews…**” was shouted in derision at Christ before His crucifixion.
 
-**Luke 1:28, “HAIL, Mary, highly favored…”**was the greeting of the
-angel to Mary. Note: the verses does not say “full of grace”. Mary was a
-recipient of grace, not the source of grace!
+* **Luke 1:28, “HAIL, Mary, highly favored…”**was the greeting of the angel to Mary. Note: the verses does not say “full of grace”. Mary was a recipient of grace, not the source of grace!
 
-A curious use of **chairo** is seen in 2 John 10,11, "If there come any
-unto you, and bring not this doctrine, receive him not into your house,
-neither bid him God speed (**chairo)**: for he that bids him God speed
-is partaker of his evil deeds." That is, we are to offer no joy to false
-teachers.
+A curious use of **chairo** is seen in 2 John 10,11, "If there come any unto you, and bring not this doctrine, receive him not into your house, neither bid him God speed (**chairo)**: for he that bids him God speed is partaker of his evil deeds." That is, we are to offer no joy to false teachers.
 
-The verb Greek letters (**charidzomai**) is used several ways in the
-Bible. It means “to gratify; to bestow in kindness; to grant as a free
-favor.” In each of the Bible passages below, try to determine what it is
-that shows the Lord’s grace mental attitude.
+The verb Greek letters (**charidzomai**) is used several ways in the Bible. It means “to gratify; to bestow in kindness; to grant as a free favor.” In each of the Bible passages below, try to determine what it is that shows the Lord’s grace mental attitude.
 
-**Luke 7:21.**And in that same hour he cured many of their infirmities
-and plagues, and of evil spirits; and unto many that were blind he gave
-(charidzomai) sight.
+* **Luke 7:21.**And in that same hour he cured many of their infirmities and plagues, and of evil spirits; and unto many that were blind he gave (charidzomai) sight.
 
-**Rom. 8:32.**He that spared not His own Son, but delivered Him up for
-us all, how shall He not with Him also freely give us all things?
+* **Rom. 8:32.**He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?
 
 **Charidzomai** also has the meaning of “to remit; to forgive”.
 
-**Luke 7:42.**A creditor had two debtors…And when they had nothing to
-pay, he frankly forgave (charidzomai) them both…
+* **Luke 7:42.**A creditor had two debtors…And when they had nothing to pay, he frankly forgave (charidzomai) them both…
 
-**2 Cor 2:7,10.**To whom you forgive anything, I also: for if I forgave
-(charidzomai) any thing, to whom I forgave it, for your sakes I forgave
-it in the person of Christ.
+* **2 Cor 2:7,10.**To whom you forgive anything, I also: for if I forgave (charidzomai) any thing, to whom I forgave it, for your sakes I forgave it in the person of Christ.
 
-### Application: Forgiveness
+**Application: Forgiveness**
 
-The word “forgive” is a Grace word, in the English as well as in the
-Greek (**charidzomai**). An early meaning in English was “to give or to
-grant”. Then, forgive came to mean “to remit a debt; to give up
-resentment or claim for requital; to pardon an offense.”
+The word “forgive” is a Grace word, in the English as well as in the Greek (**charidzomai**). An early meaning in English was “to give or to grant”. Then, forgive came to mean “to remit a debt; to give up resentment or claim for requital; to pardon an offense.”
 
-All of us are debtors to others, to society as a whole. And we often
-feel that people owe us many things in our human relationships. We feel
-we are owed courtesy and consideration. Sometimes we think that we are
-owed reward or status or promotion in some enterprise, or on the job. We
-are certainly owed fair treatment, justice, restitution and many other
+All of us are debtors to others, to society as a whole. And we often feel that people owe us many things in our human relationships. We feel we are owed courtesy and consideration. Sometimes we think that we are owed reward or status or promotion in some enterprise, or on the job. We are certainly owed fair treatment, justice, restitution and many other
 things.
 
-But, many people in America are spiritually, ethically, and morally
-bankrupt. They simply cannot pay society what they owe! They are
-thoughtless, selfish, ungracious. What should a Christian do about all
-of the debts owed to him. Answer: **forgive** them, as Christ forgave
-you.
+But, many people in America are spiritually, ethically, and morally bankrupt. They simply cannot pay society what they owe! They are thoughtless, selfish, ungracious. What should a Christian do about all of the debts owed to him. Answer: **forgive** them, as Christ forgave you.
 
-A Christian who practices Grace thinking (divine viewpoint) will become
-a forgiving person. To forgive means “to give up a claim; to cease
-bearing resentment”.
+A Christian who practices Grace thinking (divine viewpoint) will become a forgiving person. To forgive means “to give up a claim; to cease bearing resentment”.
 
-The rich man in Luke 7 was able to forgive the two debtors because he
-was prosperous. He gave to them out of his prosperity. A person can only
-give to others out of what God has already provided in the way of
-prosperity. In terms of money, the principle is “Let him that stole,
-steal no more; rather, let him labor, doing with his hands the thing
-that is good, that he may have to give to him that needeth.”
+The rich man in Luke 7 was able to forgive the two debtors because he was prosperous. He gave to them out of his prosperity. A person can only give to others out of what God has already provided in the way of prosperity. In terms of money, the principle is “Let him that stole, steal no more; rather, let him labor, doing with his hands the thing that is good, that he may have to give to him that needeth.”
 
-As a growing Christian, you have many other kinds of prosperity, by the
-Grace of God. You have intellectual prosperity (divine viewpoint). You
-have spiritual prosperity (peace with God). You have emotional
-prosperity (relaxed mental attitude). You have financial prosperity
-(mastery of details of life). You have social prosperity (stable
-marriage, stable family life, etc.).
+As a growing Christian, you have many other kinds of prosperity, by the Grace of God. You have intellectual prosperity (divine viewpoint). You have spiritual prosperity (peace with God). You have emotional prosperity (relaxed mental attitude). You have financial prosperity (mastery of details of life). You have social prosperity (stable marriage, stable family life, etc.).
 
-Wherever in your life you find that someone else owes you something, you
-have the wherewithal to forgive him! God has forgiven all of us who are
-absolutely without resources of our own. And He is not expecting or
-demanding some kind of payment in return for His grace gifts. And we are
-to be channels of grace to the world. “Out of your innermost being shall
+Wherever in your life you find that someone else owes you something, you have the wherewithal to forgive him! God has forgiven all of us who are absolutely without resources of our own. And He is not expecting or demanding some kind of payment in return for His grace gifts. And we are to be channels of grace to the world. “Out of your innermost being shall
 flow rivers of living water.”
 
-Another grace word is the (Greek) noun (**charisma**), “a free gift; a
-benefit; a spiritual gift.” An interesting use is seen in Romans 1:11,
-“For I long to see you, that I may impart unto you some spiritual gift
-(**charisma**), to the end you may be established.” This is not a
-spiritual gift from the Holy Spirit, but a spiritual benefit which Paul
-wished to share with the Roman Christians. [ For the uses of
-**charisma** as “spiritual gift”, see 1 Cor. 12:4,9,28,30,30 and Romans
-12. ]
+Another grace word is the (Greek) noun (**charisma**), “a free gift; a benefit; a spiritual gift.” An interesting use is seen in Romans 1:11, “For I long to see you, that I may impart unto you some spiritual gift (**charisma**), to the end you may be established.” This is not a spiritual gift from the Holy Spirit, but a spiritual benefit which Paul wished to share with the Roman Christians. [ For the uses of **charisma** as “spiritual gift”, see 1 Cor. 12:4,9,28,30,30 and Romans 12. ]
 
-**Rom. 6:23.**For the wages of sin is death, but the gift (charisma) of
-God is eternal life through Jesus Christ our Lord.
+* **Rom. 6:23.**For the wages of sin is death, but the gift (charisma) of God is eternal life through Jesus Christ our Lord.
 
 But how did this happen? How can God give such a gift to us?
 
-**Rom. 5:15.**But not as the offence, so also is the free gift. For if
-through the offence of one many be dead, much more the grace of God, and
-the gift by grace, which is by one man, Jesus Christ, hath abounded unto
-many.
+* **Rom. 5:15.**But not as the offence, so also is the free gift. For if through the offence of one many be dead, much more the grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many.
 
-To comprehend this fully, you must study the context. The complete
-context of Romans 5:15 ranges from Romans 2:1 to 6:2 (at least)!
+To comprehend this fully, you must study the context. The complete context of Romans 5:15 ranges from Romans 2:1 to 6:2 (at least)!
 
-A very important grace word is the Greek (**charis**), which has a
-variety of translations in the New Testament, including “favor;
-pleasure; gift; benefit; liberality; and gratitude” as illustrated in
-the following Scriptures.
+A very important grace word is the Greek (**charis**), which has a variety of translations in the New Testament, including “favor; pleasure; gift; benefit; liberality; and gratitude” as illustrated in the following Scriptures.
 
-**Luke 1:30.**And the angel said unto her, Fear not, Mary: for you have
-found favor (charis) with God.
+* **Luke 1:30.**And the angel said unto her, Fear not, Mary: for you have found favor (charis) with God.
 
-**Luke 2:52.**And Jesus increased in wisdom and stature, and in favor
-(charis) with God and man.
+* **Luke 2:52.**And Jesus increased in wisdom and stature, and in favor (charis) with God and man.
 
 Acts 24:27 and 25:9 use (**charis**) with respect to pleasure.
 
-**2 Cor. 8:4.**Praying us with much entreaty that we would receive the
-gift (charis), and take upon us the fellowship of ministering to the
-saints.
+* **2 Cor. 8:4.**Praying us with much entreaty that we would receive the gift (charis), and take upon us the fellowship of ministering to the saints.
 
-**2 Cor. 1:14,15.**As also ye have acknowledged us in part, that we are
-your rejoicing, even as ye also are out’s in the day of the Lord Jesus.
-And in this confidence I was minded to come unto you before, that ye
-might have a second benefit (charis).
+* **2 Cor. 1:14,15.**As also ye have acknowledged us in part, that we are your rejoicing, even as ye also are out’s in the day of the Lord Jesus. And in this confidence I was minded to come unto you before, that ye might have a second benefit (charis).
 
-This usage emphasizes that the benefit, or gift, is the effect of the
-gracious disposition of the benefactor.
+This usage emphasizes that the benefit, or gift, is the effect of the gracious disposition of the benefactor.
 
-**1 Cor. 16:3.**And when I come, whomever you shall approve by your
-letters, them will I send to bring you liberality (charis) to Jerusalem.
+* **1 Cor. 16:3.**And when I come, whomever you shall approve by your letters, them will I send to bring you liberality (charis) to Jerusalem.
 
-It is in the idea of gratitude, as the response of the one who receives
-a grace benefit, that we begin to see the means by which God causes the
-correct response in people. A free gift brings a joyous, thankful
-response.
+It is in the idea of gratitude, as the response of the one who receives a grace benefit, that we begin to see the means by which God causes the correct response in people. A free gift brings a joyous, thankful response.
 
-**Rom. 6:17.**But God be thanked (charis) [that is, ‘grace to God’] that
-you were the servants of sin, but you have obeyed from the heart that
-form of doctrine which was delivered to you.
+* **Rom. 6:17.**But God be thanked (charis) [that is, ‘grace to God’] that you were the servants of sin, but you have obeyed from the heart that form of doctrine which was delivered to you.
 
-**2 Cor. 1:14.**(as also you have understood us in part), that we are
-your boast as you also [are] ours, in the day of the Lord Jesus.
+* **2 Cor. 1:14.**(as also you have understood us in part), that we are your boast as you also [are] ours, in the day of the Lord Jesus.
 
 See also 2 Cor. 8:16 and 2 Cor. 9:15.
 
-**1 Tim. 1:12.**And I thank Christ Jesus our Lord, who has enabled me,
-for that he counted me faithful, putting me into the ministry.
+* **1 Tim. 1:12.**And I thank Christ Jesus our Lord, who has enabled me, for that he counted me faithful, putting me into the ministry.
 
-**1 Pet. 2:18 to 20.**Servants, be subject to your masters with all
-respect; not only to the good and gentle, but also to the unreasonable.
-For this is thankworthy (charis), if a man for conscience toward God
-endure grief, suffering wrongfully. For what glory is it, if, when you
-are buffeted for your faults, you shall take it patiently? But if, when
-you do well, and suffer for it, you take it patiently, this is
-acceptable (charis) with God.
+* **1 Pet. 2:18 to 20.**Servants, be subject to your masters with all respect; not only to the good and gentle, but also to the unreasonable. For this is thankworthy (charis), if a man for conscience toward God endure grief, suffering wrongfully. For what glory is it, if, when you are buffeted for your faults, you shall take it patiently? But if, when you do well, and suffer for it, you take it patiently, this is acceptable (charis) with God.
 
-Read also Luke 6:32 to 36
+* Read also Luke 6:32 to 36
 
-Other common Greek words for gratitude or thankfulness are
-(**eucharistia**) and (**eucharistos**), which are derived from
-**charis** as well. There are very few examples of these in the papyrii,
-but there is a copy of a letter written by the Emperor Claudius
-expressing his gratification at games performed in his honor.
+Other common Greek words for gratitude or thankfulness are (**eucharistia**) and (**eucharistos**), which are derived from
+**charis** as well. There are very few examples of these in the papyrii, but there is a copy of a letter written by the Emperor Claudius expressing his gratification at games performed in his honor.
 
-The Latin word *gratia* is brought into the English in the words
-“grateful” and “gratitude), etc. The Greek **eucharistia** is brought
-into the English in “Eucharist”, still used, but mainly by the high
-church, to refer to the Lord’s Supper or Communion service. In modern
-English, the connotation of grace is barely visible in “Eucharist.”
+The Latin word *gratia* is brought into the English in the words “grateful” and “gratitude), etc. The Greek **eucharistia** is brought into the English in “Eucharist”, still used, but mainly by the high church, to refer to the Lord’s Supper or Communion service. In modern English, the connotation of grace is barely visible in “Eucharist.”
 
-Thanksgiving is the expression of joy towards God by a person who has
-been the recipient of God’s grace. The mature Christian gratitude,
-therefore, is a part of the joy that is the fruit of the Spirit; thus it
-increases with edification.
+Thanksgiving is the expression of joy towards God by a person who has been the recipient of God’s grace. The mature Christian gratitude, therefore, is a part of the joy that is the fruit of the Spirit; thus it increases with edification.
 
-**Col. 2:7.**Rooted and built up in Him, and established in your faith,
-as you have been taught, abounding therein with thanksgiving
-(eucharistia).
+* **Col. 2:7.**Rooted and built up in Him, and established in your faith, as you have been taught, abounding therein with thanksgiving (eucharistia).
 
-**2 Cor. 4:14, 15.**Knowing that He which raised up the Lord Jesus shall
-raise up us also by Jesus, and shall present us with you. For all things
-are for your sakes, that the abundant grace might through the
-thanksgiving (eucharistia) of many rebound to the glory of God.
+* **2 Cor. 4:14, 15.**Knowing that He which raised up the Lord Jesus shall raise up us also by Jesus, and shall present us with you. For all things are for your sakes, that the abundant grace might through the thanksgiving (eucharistia) of many rebound to the glory of God.
 
-**1 Thess. 3:9.**For what thanks (eucharistia) can we render to God
-again for you, for all the joy(chara) wherewith we joy (chairo) for your
-sakes before God.
+* **1 Thess. 3:9.**For what thanks (eucharistia) can we render to God again for you, for all the joy(chara) wherewith we joy (chairo) for your sakes before God.
 
-Grace on the part of the giver; gratitude on the part of the receiver -
-an illustration of the doctrine of reciprocal grace.
+Grace on the part of the giver; gratitude on the part of the receiver - an illustration of the doctrine of reciprocal grace.
 
 Read 2 Cor. 9:10 to 12.
 
-**Eph. 5:4.**Neither filthiness, nor foolish talking, nor jesting, which
-are not appropriate, but rather, giving of thanks (eucharistia).
+**Eph. 5:4.**Neither filthiness, nor foolish talking, nor jesting, which are not appropriate, but rather, giving of thanks (eucharistia).
 
-This leads us to a discussion of the Greek word (**eucharisteo**), a
-verb which has the basic meaning of “to give thanks.”
+This leads us to a discussion of the Greek word (**eucharisteo**), a verb which has the basic meaning of “to give thanks.”
 
-From the early Greek **eucharisteo** meant “to do a good turn to” or “to
-oblige”, as in the Flinders Petrie Papyrii, “by doing this you will
-oblige (**eucharisteo**) us”, or in Grenfell and Hunt on the Hibeh
-Papyrii, “so that you shall not oblige me to no purpose.”
+From the early Greek **eucharisteo** meant “to do a good turn to” or “to oblige”, as in the Flinders Petrie Papyrii, “by doing this you will oblige (**eucharisteo**) us”, or in Grenfell and Hunt on the Hibeh Papyrii, “so that you shall not oblige me to no purpose.”
 
-In later Greek, this passed easily into the meaning of being grateful,
-or for giving thanks for something received. So in [P Oxy I (AD 303)],
-“so I shall be enabled to recover my property and acknowledge my
-gratitude (**eucharisteo**) to your excellency.”
+In later Greek, this passed easily into the meaning of being grateful, or for giving thanks for something received. So in [P Oxy I (AD 303)], “so I shall be enabled to recover my property and acknowledge my gratitude (**eucharisteo**) to your excellency.”
 
-Paul gives thanks (**eucharisteo**) for his readers in his greetings of
-Romans, Ephesians, Colossians, and Thessalonians. He gives thanks in
-Phil. 1:3 for fellowship shared with him. And he gives thanks in 1 Cor.
-1:4 for God’s gifts to the Christians.
+Paul gives thanks (**eucharisteo**) for his readers in his greetings of Romans, Ephesians, Colossians, and Thessalonians. He gives thanks in Phil. 1:3 for fellowship shared with him. And he gives thanks in 1 Cor. 1:4 for God’s gifts to the Christians.
 
-This word is used by Paul to remind believers to give thanks. “Giving
-thanks (**eucharisteo**) always for all things unto God and the Father
-in the name of our Lord Jesus Christ.” (Eph. 5:20)
+This word is used by Paul to remind believers to give thanks. “Giving thanks (**eucharisteo**) always for all things unto God and the Father in the name of our Lord Jesus Christ.” (Eph. 5:20)
 
-The word is used negatively in referring to the unthankful heathen.
-“Neither were thankful, but became vain in the their imaginations…”,
-(Rom. 1:21).
+The word is used negatively in referring to the unthankful heathen. “Neither were thankful, but became vain in the their imaginations…”, (Rom. 1:21).
 
-God’s Operating Principle
--------------------------
+**God’s Operating Principle**
 
 **Ephesians 2:4-7** discusses grace as God’s operating principle. Verse
 4 starts with certain facts on God’s side. God is the possessor of
