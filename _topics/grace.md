@@ -54,9 +54,9 @@ In the Oxyrhyncus Papyrii [P Oxy VIII, 1162], a Christian man’s personal lette
 
 * **Matt. 5:12.** “_Rejoice and be exceeding glad (chara): for great is your reward in heaven…_”
 
-* **Matt. 13:44.**“_Again, the kingdom of heaven is like treasure hid in a field; when a man has found it, he hides, and for joy (chara) thereof goes and sells all that he has, and buys that field._”
+* **Matt. 13:44.** “_Again, the kingdom of heaven is like treasure hid in a field; when a man has found it, he hides, and for joy (chara) thereof goes and sells all that he has, and buys that field._”
 
-* **Matt. 18:13 describes the Lord’s joy (chara) at finding the lost sheep.**
+* **Matt. 18:13** describes the Lord’s joy (chara) at finding the lost sheep.
 
 * **Matt. 25:21, 23.** “_His lord said unto him, Well done, good and faithful servant: you have been faithful over a few things, I will make thee ruler over many things: enter into the joy (chara) of thy lord._”
 
