@@ -88,7 +88,7 @@ The verb Greek letters (**charidzomai**) is used several ways in the Bible. It m
 
 **Charidzomai** also has the meaning of “to remit; to forgive”.
 
-* **Luke 7:42.**A creditor had two debtors…And when they had nothing to pay, he frankly forgave (charidzomai) them both…
+* **Luke 7:42.** "_ A creditor had two debtors…And when they had nothing to pay, he frankly forgave (charidzomai) them both…_"
 
 * **2 Cor 2:7,10.** "_To whom you forgive anything, I also: for if I forgave (charidzomai) any thing, to whom I forgave it, for your sakes I forgave it in the person of Christ._"
 
