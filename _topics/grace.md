@@ -115,7 +115,7 @@ Another grace word is the (Greek) noun (**charisma**), “a free gift; a benefit
 
 But how did this happen? How can God give such a gift to us?
 
-* **Rom. 5:15.**But not as the offence, so also is the free gift. For if through the offence of one many be dead, much more the grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many.
+* **Rom. 5:15.** "_But not as the offence, so also is the free gift. For if through the offence of one many be dead, much more the grace of God, and the gift by grace, which is by one man, Jesus Christ, hath abounded unto many._"
 
 To comprehend this fully, you must study the context. The complete context of Romans 5:15 ranges from Romans 2:1 to 6:2 (at least)!
 
