@@ -103,7 +103,7 @@ But, many people in America are spiritually, ethically, and morally bankrupt. Th
 
 A Christian who practices Grace thinking (divine viewpoint) will become a forgiving person. To forgive means “to give up a claim; to cease bearing resentment”.
 
-The rich man in Luke 7 was able to forgive the two debtors because he was prosperous. He gave to them out of his prosperity. A person can only give to others out of what God has already provided in the way of prosperity. In terms of money, the principle is “Let him that stole, steal no more; rather, let him labor, doing with his hands the thing that is good, that he may have to give to him that needeth.”
+The rich man in Luke 7 was able to forgive the two debtors because he was prosperous. He gave to them out of his prosperity. A person can only give to others out of what God has already provided in the way of prosperity. In terms of money, the principle is “_Let him that stole, steal no more; rather, let him labor, doing with his hands the thing that is good, that he may have to give to him that needeth._”
 
 As a growing Christian, you have many other kinds of prosperity, by the Grace of God. You have intellectual prosperity (divine viewpoint). You have spiritual prosperity (peace with God). You have emotional prosperity (relaxed mental attitude). You have financial prosperity (mastery of details of life). You have social prosperity (stable marriage, stable family life, etc.).
 
