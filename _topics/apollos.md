@@ -1,5 +1,6 @@
 ---
 title: Apollos
+description: a short account of what the Bible has to say about this friend of the apostle Paul. [JAN 2012]
 layout: lesson
 ---
 
