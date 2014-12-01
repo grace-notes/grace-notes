@@ -1,89 +1,35 @@
 ---
 title: Mental Attitude
+description: A thorough article on the problems of mental attitude and how to grow into stability in the Christian Way of Life; how to have a relaxed mental attitude; how to avoid many kinds of neurosis.
 layout: lesson
 ---
 
 
-**Mental Attitude 5**
+**Introduction**
 
-**Mental Attitude**
+As a believer progresses in his Christian life, he experiences many profound changes in his thinking. His standards change gradually but radically; his frame of reference changes; his mental attitude soon becomes very different from what it once was. His previous way of thinking is replaced by the mind of Christ where God’s viewpoint becomes his own.
 
-1.  Introduction
-    ------------
+The greatest occupational hazard faced by a Christian is the failure to grow in Christ. Persistent personal sin carried on without repentance and confession keeps the Christian out of fellowship with the Lord and hinders the work of the Holy Spirit in his life.
 
-As a believer progresses in his Christian life, he experiences many
-profound changes in his thinking. His standards change gradually but
-radically; his frame of reference changes; his mental attitude soon
-becomes very different from what it once was. His previous way of
-thinking is replaced by the mind of Christ where God’s viewpoint becomes
-his own.
+The normal Christian life is a supernatural life. This life cannot be lived apart from the daily intake of spiritual food, the sustenance which comes with the study of the Bible accompanied by the continuous control and ministry of the Holy Spirit. Inattention to the teaching of the word of God concerning the mechanics of daily Christian living results in failure to grow in Christ. The believer who will not overcome these problems will not be able to enjoy the benefits and blessings of the Christian life, and he will certainly not be productive as a child of God.
 
-The greatest occupational hazard faced by a Christian is the failure to
-grow in Christ. Persistent personal sin carried on without repentance
-and confession keeps the Christian out of fellowship with the Lord and
-hinders the work of the Holy Spirit in his life.
+This article reviews several factors relating to the subject of the believer’s mental attitude. First, we note several categories of mental attitude sin which are the result of not thinking grace. Then we see the methods by which God arranges for human viewpoint thinking to be replaced with divine viewpoint thinking. This study will also show some of the important results in the life of the Christian who develops a godly mental attitude.
 
-The normal Christian life is a supernatural life. This life cannot be
-lived apart from the daily intake of spiritual food, the sustenance
-which comes with the study of the Bible accompanied by the continuous
-control and ministry of the Holy Spirit. Inattention to the teaching of
-the word of God concerning the mechanics of daily Christian living
-results in failure to grow in Christ. The believer who will not overcome
-these problems will not be able to enjoy the benefits and blessings of
-the Christian life, and he will certainly not be productive as a child
-of God.
+**The Sin of Not Thinking Grace**
 
-This article reviews several factors relating to the subject of the
-believer’s mental attitude. First, we note several categories of mental
-attitude sin which are the result of not thinking grace. Then we see the
-methods by which God arranges for human viewpoint thinking to be
-replaced with divine viewpoint thinking. This study will also show some
-of the important results in the life of the Christian who develops a
-godly mental attitude.
+A Christian decides many times every day whether he will follow God’s plan for his life. In decisions great or small he expresses either his dependence on the Lord or his desire to be independent of God’s direction. A believer has access to the perfect plan of God for his life, a plan which has certain predetermined divine standards by which every situation can be measured, by which every decisive opportunity can be judged. Many promises and blessings are available for use by the
+person who orders his life according to the patterns laid out in the Bible.
 
-1.  The Sin of Not Thinking Grace
-    -----------------------------
+The person who is not positive to the plan of God, and who would apply his own human standards to life situations, does not operate by divine standards. He becomes involved in a variety of mental attitude sin problems stemming from his original decision to be independent of God. His life takes on the characteristics of one who does not think grace.
 
-A Christian decides many times every day whether he will follow God’s
-plan for his life. In decisions great or small he expresses either his
-dependence on the Lord or his desire to be independent of God’s
-direction. A believer has access to the perfect plan of God for his
-life, a plan which has certain predetermined divine standards by which
-every situation can be measured, by which every decisive opportunity can
-be judged. Many promises and blessings are available for use by the
-person who orders his life according to the patterns laid out in the
-Bible.
+Grace is that characteristic of God which is an extension of His love for the human race and which causes Him to provide for every human need for time and eternity. The sacrificial death of Jesus Christ on the cross was the work which made it possible for God to view every person as free from the guilt of sin and as an object of God’s grace provisions.
 
-The person who is not positive to the plan of God, and who would apply
-his own human standards to life situations, does not operate by divine
-standards. He becomes involved in a variety of mental attitude sin
-problems stemming from his original decision to be independent of God.
-His life takes on the characteristics of one who does not think grace.
+Failure to order one’s thinking according to grace involves several aspects of mental attitude sin, including the following:
 
-Grace is that characteristic of God which is an extension of His love
-for the human race and which causes Him to provide for every human need
-for time and eternity. The sacrificial death of Jesus Christ on the
-cross was the work which made it possible for God to view every person
-as free from the guilt of sin and as an object of God’s grace
-provisions.
-
-Failure to order one’s thinking according to grace involves several
-aspects of mental attitude sin, including the following:
-
-1.  ### A Spirit of Pride
-
-This is an exalted feeling based on personal success or position, or
-based on good training or education, on personal appearance or on some
-natural gift or ability. Sinful pride is an inner feeling of self
-importance which does not take into account God’s provision of every
-resource and quality which goes into one’s human traits and
+1. _*A Spirit of Pride*_: This is an exalted feeling based on personal success or position, or based on good training or education, on personal appearance or on some natural gift or ability. Sinful pride is an inner feeling of self importance which does not take into account God’s provision of every resource and quality which goes into one’s human traits and
 capabilities.
 
-1.  ### Love of, or desire for, human approbation and praise
-
-This is a secret fondness for being noticed and recognized. It is a love
-of supremacy, or it is the drawing of attention to oneself by various
-types of exhibitionism or by spiritual one upmanship.
+2. *_Love of, or desire for, human approbation and praise_*: This is a secret fondness for being noticed and recognized. It is a love of supremacy, or it is the drawing of attention to oneself by various types of exhibitionism or by spiritual one upmanship.
 
 1.  ### Self will
 
