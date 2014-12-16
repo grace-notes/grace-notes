@@ -1,5 +1,6 @@
 ---
 title: Negative Volition
+description: Stern warnings to believers "not to walk as other Gentiles walk".
 layout: lesson
 ---
 
