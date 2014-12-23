@@ -9,27 +9,27 @@ The word “mystery” in the New Testament refers to the doctrine which is spec
 
 Paul states in Rom 16:25-26, Col 1:25-26 and Eph 3:3-6 that this mystery is now revealed. Especially in the Ephesians 3 passage, he points out that there is no excuse for ignorance. Ignorance of what the Bible says is the greatest occupational hazard for a Christian believer.
 
-Ignorance of the plan of God causes a believer to make wrong assessments in life, to establish wrong priorities, to make wrong decisions, and fail to solve problems correctly. The many New Testament commands to “grow in knowledge”, to “grow in Christ”, to “be edified”, to “let this mind be in you which was also in Christ Jesus, are pleas by the holy apostles to us Christians to overcome our ignorance with knowledge of Bible doctrine.
+Ignorance of the plan of God causes a believer to make wrong assessments in life, to establish wrong priorities, to make wrong decisions, and fail to solve problems correctly. The many New Testament commands to “_grow in knowledge_”, to “_grow in Christ_”, to “_be edified_”, to “_let this mind be in you which was also in Christ Jesus_," are pleas by the holy apostles to us Christians to overcome our ignorance with knowledge of Bible doctrine.
 
 The content of the mystery doctrine was first prophesied by our Lord Jesus Christ during His life on earth, in John 14:20 and Acts 1:5-8.
 
 None of the following mystery doctrines were known to the Old Testament writers of Scripture:
 
-• The baptism of the Holy Spirit with its results
+* The baptism of the Holy Spirit with its results
 
-• The Union of a Christian with Jesus Christ (Positional Truth)
+* The Union of a Christian with Jesus Christ (Positional Truth)
 
-• The new spiritual organization called the family of God
+* The new spiritual organization called the family of God
 
-• The unique plan of God with its precisely correct procedures
+* The unique plan of God with its precisely correct procedures
 
-• The equal privilege and equal opportunity of every Christian to execute God’s plan
+* The equal privilege and equal opportunity of every Christian to execute God’s plan
 
-• Our portfolio of assets, “all blessings in heavenly places in Christ”
+* Our portfolio of assets, “all blessings in heavenly places in Christ”
 
-• The unique commissioning of Christians as priests and ambassadors
+* The unique commissioning of Christians as priests and ambassadors
 
-• The indwelling in each Christian of each member of the Trinity
+* The indwelling in each Christian of each member of the Trinity
 
 The main job of pastors, teachers, elders is to communicate mystery doctrines. Communicating Bible truth is the primary focus of the command to elders in 1 Peter 5:2 to “Feed the flock of God which is among you…”
 
