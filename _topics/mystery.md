@@ -25,17 +25,17 @@ None of the following mystery doctrines were known to the Old Testament writers 
 
 * The equal privilege and equal opportunity of every Christian to execute God’s plan
 
-* Our portfolio of assets, “all blessings in heavenly places in Christ”
+* Our portfolio of assets, “_all blessings in heavenly places in Christ_”
 
 * The unique commissioning of Christians as priests and ambassadors
 
 * The indwelling in each Christian of each member of the Trinity
 
-The main job of pastors, teachers, elders is to communicate mystery doctrines. Communicating Bible truth is the primary focus of the command to elders in 1 Peter 5:2 to “Feed the flock of God which is among you…”
+The main job of pastors, teachers, elders is to communicate mystery doctrines. Communicating Bible truth is the primary focus of the command to elders in 1 Peter 5:2 to “_Feed the flock of God which is among you…_”
 
 1 Cor 4:1, “_Let a person regard us as servants of Christ and stewards of the mysteries of God._”
 
-1 Cor 2:7, “But we communicate God’s wisdom in a mystery, the hidden assets which God predestined before the ages to our glory.”
+1 Cor 2:7, “_But we communicate God’s wisdom in a mystery, the hidden assets which God predestined before the ages to our glory._”
 
 1 Tim 3:9, “_Holding the mystery of the faith in a pure conscience._”
 
