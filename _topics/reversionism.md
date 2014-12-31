@@ -608,144 +608,93 @@ Falling into the pit or hold refers to believer degeneracy. He has made it himse
 
 **Reversionism leads to the destruction of the client nation,**
 
-Hos 4:1-6.
+**Hos 4:1-6**.
 
-Hos 4:1, “Hear the word of the Lord, you citizens of Israel [Northern Kingdom of Israel as a client nation to God], because the Lord has a [legal] case against the inhabitants of the client nation; because nothing of doctrine is being taught, and nothing of grace is being applied. There is no knowledge of God.”
+**Hos 4:1**, “_Hear the word of the Lord, you citizens of Israel_ [Northern Kingdom of Israel as a client nation to God], _because the Lord has a [legal] case against the inhabitants of the client nation; because nothing of doctrine is being taught, and nothing of grace is being applied. There is no knowledge of God._”
 
-Hos 4:2, “Instead, there is lying [dishonesty, lack of integrity and virtue], deception, murder, rape; therefore, violence [criminal violence and terrorism].”
+**Hos 4:2**, “_Instead, there is lying [dishonesty, lack of integrity and virtue], deception, murder, rape; therefore, violence_ [criminal violence and terrorism].”
 
-Hos 4:3, “Consequently, the land mourns and all who live in it languish [loss of strength and dynamics], along with domestic animals [birds, fish].”
+**Hos 4:3**, “_Consequently, the land mourns and all who live in it languish_ [loss of strength and dynamics], _along with domestic animals_ [birds, fish].”
 
-Hos 4:4, “Yet let no one find fault; let no one offer criticism. For your citizens are like those who are contending with doctrinal communicators [Levitical priesthood].”
+**Hos 4:4**, “_Yet let no one find fault; let no one offer criticism. For your citizens are like those who are contending with doctrinal communicators_ [Levitical priesthood].”
 
-Hos 4:5, “Therefore, you have stumbled in the daylight, and even the false prophet will stumble with you in night darkness, and I will destroy your mother [client nation].”
+**Hos 4:5**, “_Therefore, you have stumbled in the daylight, and even the false prophet will stumble with you in night darkness, and I will destroy your mother_ [client nation].”
 
--   The daylight refers to clear doctrinal teaching, to great warnings
-    from both prophets and priests alike. The people had heard the truth
-    and had been warned, yet they stumbled in that daylight. They
-    stumble even as they see the problem.
+* The daylight refers to clear doctrinal teaching, to great warnings from both prophets and priests alike. The people had heard the truth and had been warned, yet they stumbled in that daylight. They stumble even as they see the problem.
 
--   The false prophet is worse than the people. He is in darkness and
-    reversionism, knowing no doctrine at all. He’s in total reversionism
-    in night darkness.
+* The false prophet is worse than the people. He is in darkness and reversionism, knowing no doctrine at all. He’s in total reversionism in night darkness.
 
-Hos 4:6, “My people are destroyed for lack of knowledge. Because you
-have rejected knowledge [of doctrine], I will reject you from being a
-priest [client] nation. Since you have neglected the doctrine of your
-God, I, even I, will neglect your sons.”
+**Hos 4:6**, “_My people are destroyed for lack of knowledge. Because you have rejected knowledge_ [of doctrine], _I will reject you from being a priest_ [client] _nation. Since you have neglected the doctrine of your God, I, even I, will neglect your sons._”
 
--   Sons refers to the next generation, which would become enslaved
-    after the destruction of the client nation.
+* Sons refers to the next generation, which would become enslaved after the destruction of the client nation.
 
--   This client nation of the Northern Kingdom of Israel was destroyed
-    by the Assyrians in 721 B.C.
+* This client nation of the Northern Kingdom of Israel was destroyed by the Assyrians in 721 B.C.
 
-Evil is a major factor in the function of reversionism.
--------------------------------------------------------
+**Evil is a major factor in the function of reversionism.**
 
 Remember that God is holy, which means God has perfect integrity.
 
-The integrity of God demands the perpetuation of the human race until
-the course of history and the prehistoric angelic conflict have both
-been completed.
+The integrity of God demands the perpetuation of the human race until the course of history and the prehistoric angelic conflict have both been completed.
 
-Since the fall of mankind in the Garden, Satan has replaced man as the
-ruler of this world.
+Since the fall of mankind in the Garden, Satan has replaced man as the ruler of this world.
 
-The policies of Satan as the ruler of this world are called “Evil.” Evil
-comes in many forms, both sweetness and light as well as darkness and
-terror.
+The policies of Satan as the ruler of this world are called “Evil.” Evil comes in many forms, both sweetness and light as well as darkness and terror.
 
-The policy of God is revealed only in the Word of God. The policy of God
-is Grace.
+The policy of God is revealed only in the Word of God. The policy of God is Grace.
 
-The two antagonistic forces of grace and evil have preexisted the
-creation of the human race and the beginning of human history. Now they
-continue in human history.
+The two antagonistic forces of grace and evil have preexisted the creation of the human race and the beginning of human history. Now they continue in human history.
 
-The absolute truths of Bible doctrine versus the relative concepts of
-Satan are always at war on the battlefield of human history.
+The absolute truths of Bible doctrine versus the relative concepts of Satan are always at war on the battlefield of human history.
 
-Relative truth versus absolute truth is as part of the angelic conflict,
-now perpetuated in human history.
+Relative truth versus absolute truth is as part of the angelic conflict, now perpetuated in human history.
 
-Bible doctrine portrays the grace plan of God, while evil reveals the
-genius of Satan’s administration of the rulership of this world.
+Bible doctrine portrays the grace plan of God, while evil reveals the genius of Satan’s administration of the rulership of this world.
 
-Satan’s policy of evil includes sin and human good, immoral and moral
-degeneracy, and all the sins of arrogance.
+Satan’s policy of evil includes sin and human good, immoral and moral degeneracy, and all the sins of arrogance.
 
 Therefore, evil is a major factor in the function of reversionism.
 
 See Topic: Evil
 
-Illustrations of Reversionism.
-------------------------------
+**Illustrations of Reversionism.**
 
-In Rev 3:14-21, believers became involved in gnosticism and grew
-lukewarm toward the Lord.
+In Rev 3:14-21, believers became involved in gnosticism and grew lukewarm toward the Lord.
 
-In the story of Hosea and Gomer, Gomer ran off with a prince of Israel
-in her reversionism.
+In the story of Hosea and Gomer, Gomer ran off with a prince of Israel in her reversionism.
 
-Jeremiah had to buy his right woman from slavery after she had become a
-prostitute.
+Jeremiah had to buy his right woman from slavery after she had become a prostitute.
 
-James 2:1-5 presents the case of the short-sighted usher who gave the
-rich man the best seat.
+James 2:1-5 presents the case of the short-sighted usher who gave the rich man the best seat.
 
-In 2 Cor 10:10-11, the Corinthians rejected Paul, their right pastor,
-for the Judaizers.
+In 2 Cor 10:10-11, the Corinthians rejected Paul, their right pastor, for the Judaizers.
 
-Paul’s reversionism occurred when he went to Jerusalem, even though he
-was warned by the Spirit not to go. This cost him four years in prison.
+Paul’s reversionism occurred when he went to Jerusalem, even though he was warned by the Spirit not to go. This cost him four years in prison.
 
-David’s reversionism with Bathsheba and murder of her husband, Uriah the
-Hittite, cost him the death of a child, the rape of a daughter, the
-death of his favorite son, and a revolution in his kingdom.
+David’s reversionism with Bathsheba and murder of her husband, Uriah the Hittite, cost him the death of a child, the rape of a daughter, the death of his favorite son, and a revolution in his kingdom.
 
-Elijah’s fear of being murdered and not trusting in the protection of
-the Lord was his manifestation of reversionism.
+Elijah’s fear of being murdered and not trusting in the protection of the Lord was his manifestation of reversionism.
 
-The Warnings and Mandates to Avoid Reversionism.
-------------------------------------------------
+**The Warnings and Mandates to Avoid Reversionism.**
 
 The warning to avoid reversionism is found in
 
-2 Jn 7-“Because many deceivers have gone out into the world who do not
-acknowledge Jesus Christ as coming in the flesh. This person is the
-deceiver and an antichrist. Look out for yourselves, that you may not
-lose your momentum which you have accomplished, but that you might
-receive a full reward. No one has fellowship with God who keeps
-advancing out of bounds and does not remain on the playing field through
-the doctrine of Christ. He who resides in the divine dynasphere by means
-of doctrine, this same one keeps on having fellowship with both the
-Father and the Son.”
+**2 Jn 7**- “_Because many deceivers have gone out into the world who do not acknowledge Jesus Christ as coming in the flesh. This person is the deceiver and an antichrist. Look out for yourselves, that you may not lose your momentum which you have accomplished, but that you might receive a full reward. No one has fellowship with God who keeps advancing out of bounds and does not remain on the playing field through the doctrine of Christ. He who resides in the divine dynasphere by means of doctrine, this same one keeps on having fellowship with both the Father and the Son._”
 
-1 Tim 3:6, “Do not be an immature believer, lest having received blind
-arrogance [self-fragmentation], you fall into the condemnation of the
-devil [explosion and reversion].”
+**1 Tim 3:6**, “_Do not be an immature believer, lest having received blind arrogance [self-fragmentation], you fall into the condemnation of the devil_ [explosion and reversion].”
 
 The mandate to avoid reversionism is found in
 
-1 John 2:1, “Stop loving the cosmic system, or anything pertaining to
-the cosmic system.”
+**1 John 2:1**, “_Stop loving the cosmic system, or anything pertaining to the cosmic system._”
 
-Characteristics of Reversionism.
---------------------------------
+**Characteristics of Reversionism.**
 
-Reversionism concentrates on false teaching, and therefore possesses the
-spirit of error, 1 Jn 4:5-People in reversionism will always believe the
-lie, false doctrine, gossip, or anything else that is untrue.
+Reversionism concentrates on false teaching, and therefore possesses the spirit of error, 1 Jn 4:5-People in reversionism will always believe the lie, false doctrine, gossip, or anything else that is untrue.
 
 Reversionism contaminates others.
 
-Heb 12:15, “See to it that no one falls back from the grace of God, that
-no root of bitterness sprouting up causes trouble, and through this many
-be contaminated.”
+Heb 12:15, “See to it that no one falls back from the grace of God, that no root of bitterness sprouting up causes trouble, and through this many be contaminated.”
 
-Reversionism causes the believer to lose his escrow blessings for both
-time and eternity,
+Reversionism causes the believer to lose his escrow blessings for both time and eternity,
 
 Heb 3:10-12.
 
@@ -759,48 +708,33 @@ Rom 1:29-32
 
 Hos 4:1-6.
 
-The cosmic system is a trap for the development of reversionism.
-----------------------------------------------------------------
+**The cosmic system is a trap for the development of reversionism.**
 
-2 Cor. 2:11, “In order that no advantage be taken of us by Satan, for we
-are not ignorant of his schemes.”
+**2 Cor. 2:11**, “_In order that no advantage be taken of us by Satan, for we are not ignorant of his schemes._”
 
-Eph 4:27, “Do not be giving opportunity to the devil.”
+**Eph 4:27**, “_Do not be giving opportunity to the devil._”
 
-1 Tim 3:6-7, “fall into the snare of the devil.”
+**1 Tim 3:6-7**, “_fall into the snare of the devil._”
 
-2 Tim 2:26, “that they should come to their senses.”
+**2 Tim 2:26**, “_that they should come to their senses._”
 
-Gal 5:4, “you have drifted off course from grace.”
+**Gal 5:4**, “_you have drifted off course from grace._”
 
-Discipline for Reversionism.
-----------------------------
+**Discipline for Reversionism**
 
-. In stages one through four of reversionism, the believer receives
-warning discipline. This discipline may come in the form of either
-adversity or prosperity. For example, you may have love and then have it
-removed. This is the warning discipline of Rev 3:20 and Jas 5:9.
+In stages one through four of reversionism, the believer receives warning discipline. This discipline may come in the form of either adversity or prosperity. For example, you may have love and then have it removed. This is the warning discipline of Rev 3:20 and Jas 5:9.
 
-In stages five through seven, the believer receives intensified
-discipline, Psalm 38:1ff; 2 Thess 2:11.
+In stages five through seven, the believer receives intensified discipline, Psalm 38:1ff; 2 Thess 2:11.
 
-In stage eight, the believer receives dying discipline or the sin unto
-death, Jer 9:16, 44:12; Phil 3:18-19; Rev 3:16; 1 Cor 10:13-14; Psalm
-118:17-18; 1 John 5:16.
+In stage eight, the believer receives dying discipline or the sin unto death, Jer 9:16, 44:12; Phil 3:18-19; Rev 3:16; 1 Cor 10:13-14; Psalm 118:17-18; 1 John 5:16.
 
 Reversionism intensifies suffering, Ps 77:1-10.
 
-Reversionism was a major subject of the writer of Hebrews to the Christians living in Israel.
----------------------------------------------------------------------------------------------
+**Reversionism was a major subject of the writer of Hebrews to the Christians living in Israel.**
 
-. The believers who received the book of Hebrews were in reversionism,
-Heb 5:11-14.
+The believers who received the book of Hebrews were in reversionism, Heb 5:11-14.
 
-Reversion recovery is impossible apart from the daily metabolization of
-basic doctrine, Heb 6:1-3.
+Reversion recovery is impossible apart from the daily metabolization of basic doctrine, Heb 6:1-3.
 
-Reversion recovery is impossible when religious reversionism is
-perpetuated in the life, Heb 6:4-6.
-
-====================
+Reversion recovery is impossible when religious reversionism is perpetuated in the life, Heb 6:4-6.
 
