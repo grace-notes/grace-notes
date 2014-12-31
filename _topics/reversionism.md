@@ -42,17 +42,17 @@ Fragmentation results in eight stages of reversionism.
 
 2.  Frantic search for happiness.
 
-2  Operation boomerang.
+2.  Operation boomerang.
 
-2  Emotional revolt of the soul.
+2.  Emotional revolt of the soul.
 
-2  Permanent negative volition.
+2.  Permanent negative volition.
 
-2  Blackout of the soul.
+2.  Blackout of the soul.
 
-2  Scar tissue of the soul.
+2.  Scar tissue of the soul.
 
-2  Reverse process reversionism.
+2.  Reverse process reversionism.
 
 While the carnal believer can still be positive toward doctrine and faithful in using the confession of sin technique, the reversionistic believer is negative toward doctrine, has entered the vacuum of the soul, and does not consistently use the confession of sin technique. It takes only a moment to recover from carnality by the use of confession of sin, but it takes years to recover from reversionism.
 
@@ -104,7 +104,7 @@ Occasional sinning is when the believer checks implosion, explosion and reversio
 
 **The Eight Stages of Reversionism.**
 
-*_Reaction and Distraction._*
+*_1. Reaction and Distraction._*
 
 By the time the believer has gone through implosion (self-fragmentation) and explosion (polarized fragmentation), he has become negative toward the teaching of Bible doctrine.
 
@@ -122,7 +122,7 @@ This reaction and distraction leads to fragmentation. Every believer is a walkin
 
 Arrogance is the number one distraction to Bible doctrine.
 
-**Rom 12:2-3**, “Stop being conformed to this world [peer pressure], but be transformed by the renovation of your thought, that you may prove what the will of God is; namely, the good of intrinsic value achievement [advance to spiritual maturity], the well-pleasing to God, the mature status quo [manufacture of invisible hero]. For I say through the grace which has been given to me to every one who is among you, stop thinking of self in terms of arrogance beyond what you ought to think, but think in terms of sanity [absolute truth] for the purpose of being rational without illusion as God has assigned to each one of us a standard of thinking from doctrine.”
+**Rom 12:2-3**, “_Stop being conformed to this world [peer pressure], but be transformed by the renovation of your thought, that you may prove what the will of God is; namely, the good of intrinsic value achievement [advance to spiritual maturity], the well-pleasing to God, the mature status quo [manufacture of invisible hero]. For I say through the grace which has been given to me to every one who is among you, stop thinking of self in terms of arrogance beyond what you ought to think, but think in terms of sanity [absolute truth] for the purpose of being rational without illusion as God has assigned to each one of us a standard of thinking from doctrine._”
 
 Absolute truth is always related to reality. There are boundaries in which you must think. To be rational without illusion is the fantastic result of the daily perception, metabolization, and application of Bible doctrine. God has assigned to each one of us a standard of thinking from two categories of doctrine: the absolute principles of theology, and the applications that are given from those principles. Obviously, we cannot progress in the Christian life without the standard of thinking from doctrine. If we are not progressing through perception, metabolization, and application of doctrine, we are retrogressing. No one stands still in the Christian way of life.
 
@@ -169,11 +169,11 @@ The first stage of reversionism includes not only the arrogance of cosmic one, b
 
 Therefore, in stage one, distractions to Bible doctrine result in negative volition. Negative volition creates the vacuum in the soul that sucks in all the false doctrine.
 
-*_The Frantic Search for Happiness._*
+*_2, The Frantic Search for Happiness._*
 
 Once you have become negative toward doctrine and created the vacuum of the soul, you begin to suck in false concepts which result in the frantic search for happiness.
 
-Once a believer goes negative toward doctrine, he becomes frantic in his search for happiness. The frantic search for happiness is described in one phrase in 2 Tim 3:4: “_lovers of pleasure rather than lovers of God_”
+Once a believer goes negative toward doctrine, he becomes frantic in his search for happiness. The frantic search for happiness is described in one phrase in **2 Tim 3:4**: “_lovers of pleasure rather than lovers of God_”
 
 The frantic search for happiness has many directions: power, influence, approbation, success, status symbols, money, pleasure, social life, friends, health, sex, material things associated with happiness. There’s nothing wrong with many of these things, but when they have number one priority in your life, Bible doctrine will inevitably be neglected and
 rejected.
@@ -250,7 +250,7 @@ The frantic search for happiness follows the trends of the sin nature in polariz
 
 The frantic search for happiness includes moving toward either moral or immoral degeneracy depending on the area of weakness of the sin nature, trying to find stimulating circumstances or people, and trying to be entertained as much as possible. In this stage, true objects of love are discarded for pseudo-love objects.
 
-*_Operation Boomerang_*
+*_3. Operation Boomerang_*
 
 The boomerang, an Australian weapon used by the aborigines of Australia, is a missile-type weapon, shaped like an elbow. When thrown with accuracy, it can hit the target and kill the animal on the spot. But if they miss, the boomerang comes back to them so they can try again.
 
@@ -286,7 +286,7 @@ Operation boomerang destroys any use of the problem solving devices of the plan 
 
 * Success, prosperity, sex, or pleasure cannot make you happy. For in operation boomerang, they intensify your misery. This is because the reversionistic believer has neither capacity for success nor any use of the problem solving devices.
 
-*_Emotional Revolt of the Soul_*
+*_4. Emotional Revolt of the Soul_*
 
 The soul is composed of certain characteristics.
 
@@ -330,7 +330,7 @@ Emotional revolt of the soul means loss of a personal sense of destiny, failure 
 
 Therefore, emotional revolt makes it impossible to become an invisible hero and thereby glorify God.
 
-*_Permanent Negative Volition Toward Doctrine or Permanent Cosmic Involvement._*
+*_5. Permanent Negative Volition Toward Doctrine or Permanent Cosmic Involvement._*
 
 As a result of the reactor factors, the frantic search for happiness, operation boomerang, and an emotional revolt of the soul, the believer suffers loss of Biblical priorities, Biblical norms, and Biblical standards resulting in bad decisions from a position of weakness. This means the believer loses control of his life and a personal sense of destiny, if the believer ever had it. The believer can no longer be distinguished from an unbeliever.
 
@@ -388,9 +388,9 @@ Characteristics of negative volition toward doctrine.
 
 *_6. Blackout of the Soul_*
 
-Eph 4:17 gives the technical Greek word for the blackout of the soul: MATAIOTES. MATAIOTES is a vacuum that sucks in false doctrine. Negative volition creates a vacuum in the soul. “Therefore, I communicate this, and because of the Lord, I insist that you no longer walk as Gentiles [unbelievers] walk in the vacuum of their mind.”
+**Eph 4:17** gives the technical Greek word for the blackout of the soul: MATAIOTES. MATAIOTES is a vacuum that sucks in false doctrine. Negative volition creates a vacuum in the soul. “Therefore, I communicate this, and because of the Lord, I insist that you no longer walk as Gentiles [unbelievers] walk in the vacuum of their mind.”
 
-* Through this vacuum comes the doctrine of demons, including religionism, liberalism, crusader arrogance, and anti-establishment thinking, 1 Tim 4:1.
+* Through this vacuum comes the doctrine of demons, including religionism, liberalism, crusader arrogance, and anti-establishment thinking, **1 Tim 4:1**.
 
 * The false doctrine passing through the vacuum of the soul is called demon influence, or being influenced by evil. This is not the same as demon possession; in many ways, it is worse.
 
@@ -466,254 +466,159 @@ Scar tissue of the soul is the enemy of evangelism, **Jn 12:40.**
 
 -   Scar tissue of the soul is the enemy of evangelism.
 
-Rom 2:5, “But because of your hardness of heart and unrepentant right
-lobe, you gather up and accumulate wrath for yourself against the day of
-wrath, even the manifestation of the just judgment of God.”
+**Rom 2:5**, “_But because of your hardness of heart and unrepentant right lobe, you gather up and accumulate wrath for yourself against the day of wrath, even the manifestation of the just judgment of God._”
 
 The mechanics of the unbeliever’s scar tissue are described in
 
-2 Thess.2:“And with every deception of evil for those who perish
-[unbelievers], because they did not receive the love for the truth so as
-to be saved. And for this reason, God sends to them a deluding influence
-so that they might believe a lie, in order that they all might be
-condemned in judgment who do not believe the truth, but take pleasure in
-unrighteousness.”
+2 Thess.2:“And with every deception of evil for those who perish [unbelievers], because they did not receive the love for the truth so as to be saved. And for this reason, God sends to them a deluding influence so that they might believe a lie, in order that they all might be condemned in judgment who do not believe the truth, but take pleasure in unrighteousness.”
 
-### 8. Reverse Process Reversionism
+*_8. Reverse Process Reversionism*_
 
-This is the final stage of reversionism, a combination of the sixth and
-seventh stages.
+This is the final stage of reversionism, a combination of the sixth and seventh stages.
 
-Everything that is worthwhile and valuable in life is rejected;
-everything that is useless and nonsense is accepted. Prolonged residence
-in the cosmic system causes a complete reversal of all mandates, all
-priorities, and all norms and standards related to the plan of God.
+Everything that is worthwhile and valuable in life is rejected; everything that is useless and nonsense is accepted. Prolonged residence in the cosmic system causes a complete reversal of all mandates, all priorities, and all norms and standards related to the plan of God.
 
-Christian degeneracy reaches its peak in reverse process reversionism.
-The believer in reverse process reversionism cannot be distinguished in
-any way from an unbeliever, though he cannot lose his salvation.
+Christian degeneracy reaches its peak in reverse process reversionism. The believer in reverse process reversionism cannot be distinguished in any way from an unbeliever, though he cannot lose his salvation.
 
-In reverse process reversionism, degeneracy is defined as decline from
-the normal standards of the plan of God. Therefore, the believer
-retrogresses into below normal stages of reversionism, and totally
-reverts from the divine standards found in the Word of God.
+In reverse process reversionism, degeneracy is defined as decline from the normal standards of the plan of God. Therefore, the believer retrogresses into below normal stages of reversionism, and totally reverts from the divine standards found in the Word of God.
 
--   The believer in moral degeneracy declines from the normal standards
-    of the plan, and sinks into such sub-normal standards of
-    self-fragmentation, polarized fragmentation of legalism, and
-    continues through the stages of reversionism.
+* The believer in moral degeneracy declines from the normal standards of the plan, and sinks into such sub-normal standards of self-fragmentation, polarized fragmentation of legalism, and continues through the stages of reversionism.
 
--   The believer in immoral degeneracy declines from the normal
-    standards of the plan, and sinks into the sub-normal standards of
-    self-fragmentation, polarized fragmentation of antinomianism, and
-    continues through the stages of reversionism.
+* The believer in immoral degeneracy declines from the normal standards of the plan, and sinks into the sub-normal standards of self-fragmentation, polarized fragmentation of antinomianism, and continues through the stages of reversionism.
 
--   “Reverse process” means to face in the opposite direction either
-    spiritually, mentally or physically.
+* “Reverse process” means to face in the opposite direction either spiritually, mentally or physically.
 
-Reverse process reversionism is an inverted position of degeneracy by
-the reversal of objects. Bona fide objects of love and priorities which
-include doctrine, personal love for God the Father, occupation with
-Christ, having a right pastor, right spouse, and right friends are all
-reversed. In reverse process reversionism, pseudo-love objects replace
-Biblical priorities.
+Reverse process reversionism is an inverted position of degeneracy by the reversal of objects. Bona fide objects of love and priorities which include doctrine, personal love for God the Father, occupation with Christ, having a right pastor, right spouse, and right friends are all reversed. In reverse process reversionism, pseudo-love objects replace Biblical priorities.
 
-The believer reverses the objects of his love, attention, concentration,
-and priorities. Reverse process reversionism is characterized by the
-reversal of love objects. Rev 2:4-5 describes this as “leaving your
-first love.” “But I hold this against you [believers], for you have
-abandoned your first love. Therefore, recall to mind from where you have
-fallen, and change your mind [rebound], and execute the most important
-production [execution of the plan of God]. Otherwise, I am coming to
-you, and I will remove your lamp stand [dying discipline].”
+The believer reverses the objects of his love, attention, concentration, and priorities. Reverse process reversionism is characterized by the reversal of love objects. **Rev 2:4-5** describes this as “_leaving your first love._” “_But I hold this against you_ [believers]_, for you have abandoned your first love. Therefore, recall to mind from where you have fallen, and change your mind [rebound], and execute the most important production [execution of the plan of God]. Otherwise, I am coming to you, and I will remove your lamp stand [dying discipline]._”
 
--   The first love refers to the Lord Jesus Christ as both the living
-    Word and the written Word or doctrine.
+* The first love refers to the Lord Jesus Christ as both the living Word and the written Word or doctrine.
 
--   Reverse process reversionism leaves a true object and gravitates
-    toward a pseudo-love object. The believer in reverse process
-    reversionism rejects everything related to true love and God. His
-    standards are antithetical to those of Bible doctrine.
+* Reverse process reversionism leaves a true object and gravitates toward a pseudo-love object. The believer in reverse process reversionism rejects everything related to true love and God. His standards are antithetical to those of Bible doctrine.
 
--   He seeks his own personal glory instead of love of God. He seeks any
-    false lover instead of his right woman. He seeks anyone who can help
-    him or that he can use, instead of true friends.
+* He seeks his own personal glory instead of love of God. He seeks any false lover instead of his right woman. He seeks anyone who can help him or that he can use, instead of true friends.
 
--   He has a total reversal of all true objects of love.
+* He has a total reversal of all true objects of love.
 
-Christian degeneracy blots out and reverses all of the mandates, all of
-the norms and standards, and all of the doctrinal understanding of three
-Biblical categories.
+Christian degeneracy blots out and reverses all of the mandates, all of the norms and standards, and all of the doctrinal understanding of three Biblical categories.
 
--   The laws of divine establishment.
+* The laws of divine establishment.
 
--   Salvation by grace through faith.
+* Salvation by grace through faith.
 
--   The plan of God for the Church Age.
+* The plan of God for the Church Age.
 
-### Seven characteristics of reverse process reversionism
+*_Seven characteristics of reverse process reversionism*_
 
-1. Prolonged residence in the cosmic system is the inevitable result of
-unchecked fragmentation, which is parlayed into reversionism.
+1. Prolonged residence in the cosmic system is the inevitable result of unchecked fragmentation, which is parlayed into reversionism.
 
 2. The believer in this stage is described in several ways.
 
--   The enemy of God, Jas 4:4.
+* The enemy of God, Jas 4:4.
 
--   The enemy of the cross, Phil 3:18.
+* The enemy of the cross, Phil 3:18.
 
--   A hater of God, Jn 15:23.
+* A hater of God, Jn 15:23.
 
--   Spiritual schizophrenia, “double minded,” James 4:8.
+* Spiritual schizophrenia, “double minded,” James 4:8.
 
--   Anti or against Christ, 1 Jn 2:18,22, 4:3; 2 Jn 7.
+* Anti or against Christ, 1 Jn 2:18,22, 4:3; 2 Jn 7.
 
--   Disciple of the devil, 1 Jn 3:8,10.
+* Disciple of the devil, 1 Jn 3:8,10.
 
-3. Reverse process reversionism is a status quo of unrestrained and
-perpetual sinfulness, fragmentation, reversionism, and extensive cosmic
-involvement. This believer is brainwashed by satanic propaganda.
+3. Reverse process reversionism is a status quo of unrestrained and perpetual sinfulness, fragmentation, reversionism, and extensive cosmic involvement. This believer is brainwashed by satanic propaganda.
 
-4. The manifestations of reverse process reversionism are many. The
-believer branches out into the various categories of reversionistic
-activity.
+4. The manifestations of reverse process reversionism are many. The believer branches out into the various categories of reversionistic activity.
 
--   Legalistic fragmentation or polarized legalism becomes reversionism,
-    Col 2:16-18; Heb 5:11-6:16.
+* Legalistic fragmentation or polarized legalism becomes reversionism, Col 2:16-18; Heb 5:11-6:16.
 
--   Phallic fragmentation or polarized antinomianism becomes
-    reversionism, 2 Cor 12:21; Eph 4:19, 5:5; Col 3:5; Rev 2:14, 20-23.
+* Phallic fragmentation or polarized antinomianism becomes reversionism, 2 Cor 12:21; Eph 4:19, 5:5; Col 3:5; Rev 2:14, 20-23.
 
--   Ascetic fragmentation becoming reversionism is characterized by
-    self-sacrifice and the Trappist monk syndrome, 1 Tim 4:5
+* Ascetic fragmentation becoming reversionism is characterized by     self-sacrifice and the Trappist monk syndrome, 1 Tim 4:5
 
--   Mental attitude arrogance becomes reversionism and locked-in
-    arrogance, 1 Tim 6:4,17.
+* Mental attitude arrogance becomes reversionism and locked-in arrogance, 1 Tim 6:4,17.
 
--   Monetary fragmentation becomes reversionism, Jas 4:13-14, 5:1-6; Rev
-    3:14-20; Eccl 5:10-16.
+* Monetary fragmentation becomes reversionism, Jas 4:13-14, 5:1-6; Rev 3:14-20; Eccl 5:10-16.
 
--   Drug addiction and alcoholic fragmentation becomes reversionism, Isa
-    28:1, 7-9; Gal 5:20.
+* Drug addiction and alcoholic fragmentation becomes reversionism, Isa 28:1, 7-9; Gal 5:20.
 
--   Anti-establishment fragmentation becoming reversionism is seen in
-    those who reject such establishment principles as free enterprise,
-    freedom through military victory, the divine institutions of family,
-    home, and the true function of government. Such believers do not
-    understand that freedom without authority is anarchy, and authority
-    without freedom is tyranny, Rom 1:18-32.
+* Anti-establishment fragmentation becoming reversionism is seen in those who reject such establishment principles as free enterprise, freedom through military victory, the divine institutions of family, home, and the true function of government. Such believers do not understand that freedom without authority is anarchy, and authority without freedom is tyranny, Rom 1:18-32.
 
--   Verbal fragmentation becomes reversionism, James 5:9,12.
+* Verbal fragmentation becomes reversionism, James 5:9,12.
 
--   Psychotic fragmentation becomes reversionism, 1 Pet 2:15-19.
+* Psychotic fragmentation becomes reversionism, 1 Pet 2:15-19.
 
--   National reversionism, Hos 4:1-6.
+* National reversionism, Hos 4:1-6.
 
-Biblical Nomenclature for Reversionism.
----------------------------------------
+**Biblical Nomenclature for Reversionism.**
 
-Gal 5:4, “drifting off course from grace.”
+**Gal 5:4**, “_drifting off course from grace._”
 
-Phil 3:18, “the enemy of the cross.”
+**Phil 3:18**, “_the enemy of the cross._”
 
-Jer 9:25-26, “uncircumcised of heart.”
+**Jer 9:25-26**, “_uncircumcised of heart._”
 
-Heb 12:15, “falling from grace” means total malfunction of any grace
-modus operandi, and total ignorance of the grace policy of God in the
-plan.
+**Heb 12:15**, “_falling from grace” means total malfunction of any grace modus operandi, and total ignorance of the grace policy of God in the plan._"
 
-2 Pet 2:7-8, “the tortured soul.”
+**2 Pet 2:7-8**, “_the tortured soul._”
 
-2 Pet 2:14, “the unstable soul.”
+**2 Pet 2:14**, “_the unstable soul._”
 
-Rev 2:5, “fallen.”
+**Rev 2:5**, “_fallen._”
 
-Rev 2:4, “left your first love.”
+**Rev 2:4**, “_left your first love._”
 
-Rev 3:15-16, “lukewarm.”
+**Rev 3:15-16**, “_lukewarm._”
 
-1 Tim 1:19, “shipwrecked.”
+**1 Tim 1:19**, “_shipwrecked._”
 
-John 15:23, “He who hates Me [Jesus Christ], also hates My Father.”
+**John 15:23**, “_He who hates Me [Jesus Christ], also hates My Father._”
 
-1 Pet 5:8, “Your adversary, the devil, prowls about like a roaring lion,
-seeking someone to devour.”
+**1 Pet 5:8**, “_Your adversary, the devil, prowls about like a roaring lion, seeking someone to devour._”
 
-“Devouring” is accomplished when you change your priorities by reverse
-process reversionism.
+“Devouring” is accomplished when you change your priorities by reverse process reversionism.
 
-2 Tim 2:26, “they have entered the devil’s trap.”
+**2 Tim 2:26**, “_they have entered the devil’s trap._”
 
-Profile of the Reversionist,
-----------------------------
+**Profile of the Reversionist,**
 
 Psalm 7:14-16.
 
-Psalm 7:14, "Behold, he shall have labor pains of vanity because he has
-become pregnant with frustration. Therefore, he has given birth to a
-life of deceit
+**Psalm 7:14**, "_Behold, he shall have labor pains of vanity because he has become pregnant with frustration. Therefore, he has given birth to a life of deceit_"
 
-Labor pains of vanity describe the many sins in the arrogance complex.
-Labor pains of vanity result in distraction, the first stage of
-reversionism.
+Labor pains of vanity describe the many sins in the arrogance complex. Labor pains of vanity result in distraction, the first stage of reversionism.
 
-To become pregnant with frustration describes the first three stages of
-reverse process reversionism.
+To become pregnant with frustration describes the first three stages of reverse process reversionism.
 
-The life of deceit describes the last four stages of reversionism:
-permanent negative volition toward Bible doctrine, blackout of the soul,
-scar tissue of the soul, and reverse process reversionism.
+The life of deceit describes the last four stages of reversionism: permanent negative volition toward Bible doctrine, blackout of the soul, scar tissue of the soul, and reverse process reversionism.
 
-The use of male pronouns in a pregnancy and birth illustration is
-sanctified sarcasm in the Hebrew.
+The use of male pronouns in a pregnancy and birth illustration is sanctified sarcasm in the Hebrew.
 
-Psalm7:15, “He has dug a grave and he has explored it; therefore, he has
-fallen into the pit which he made.”
+**Psalm7:15**, “_He has dug a grave and he has explored it; therefore, he has fallen into the pit which he made._”
 
-Digging a grave refers to self-fragmentation by pulling the pin of the
-grenade. First you frag yourself, and then you polarize in your
-fragmentation according to the trend of your sin nature.
+Digging a grave refers to self-fragmentation by pulling the pin of the grenade. First you frag yourself, and then you polarize in your fragmentation according to the trend of your sin nature.
 
-Digging a grave refers to implosion, wherein you answer the call of
-temptation from your sin nature. Then you explode or fragment. Digging
-the grave refers to the first four stages of reversionism.
+Digging a grave refers to implosion, wherein you answer the call of temptation from your sin nature. Then you explode or fragment. Digging the grave refers to the first four stages of reversionism.
 
-Exploring the grave you dug refers to the last four stages of
-reversionism.
+Exploring the grave you dug refers to the last four stages of reversionism.
 
-Falling into the pit or hold refers to believer degeneracy. He has made
-it himself by his own self-determination. This believer will eventually
-die the sin unto death.
+Falling into the pit or hold refers to believer degeneracy. He has made it himself by his own self-determination. This believer will eventually die the sin unto death.
 
-Psalm 7:16, “His frustration will return on his own head; and his
-violence will descend on the crown of his own head.”
+**Psalm 7:16**, “_His frustration will return on his own head; and his violence will descend on the crown of his own head._”
 
-Reversionism leads to the destruction of the client nation,
------------------------------------------------------------
+**Reversionism leads to the destruction of the client nation,**
 
 Hos 4:1-6.
 
-Hos 4:1, “Hear the word of the Lord, you citizens of Israel [Northern
-Kingdom of Israel as a client nation to God], because the Lord has a
-[legal] case against the inhabitants of the client nation; because
-nothing of doctrine is being taught, and nothing of grace is being
-applied. There is no knowledge of God.”
+Hos 4:1, “Hear the word of the Lord, you citizens of Israel [Northern Kingdom of Israel as a client nation to God], because the Lord has a [legal] case against the inhabitants of the client nation; because nothing of doctrine is being taught, and nothing of grace is being applied. There is no knowledge of God.”
 
-Hos 4:2, “Instead, there is lying [dishonesty, lack of integrity and
-virtue], deception, murder, rape; therefore, violence [criminal violence
-and terrorism].”
+Hos 4:2, “Instead, there is lying [dishonesty, lack of integrity and virtue], deception, murder, rape; therefore, violence [criminal violence and terrorism].”
 
-Hos 4:3, “Consequently, the land mourns and all who live in it languish
-[loss of strength and dynamics], along with domestic animals [birds,
-fish].”
+Hos 4:3, “Consequently, the land mourns and all who live in it languish [loss of strength and dynamics], along with domestic animals [birds, fish].”
 
-Hos 4:4, “Yet let no one find fault; let no one offer criticism. For
-your citizens are like those who are contending with doctrinal
-communicators [Levitical priesthood].”
+Hos 4:4, “Yet let no one find fault; let no one offer criticism. For your citizens are like those who are contending with doctrinal communicators [Levitical priesthood].”
 
-Hos 4:5, “Therefore, you have stumbled in the daylight, and even the
-false prophet will stumble with you in night darkness, and I will
-destroy your mother [client nation].”
+Hos 4:5, “Therefore, you have stumbled in the daylight, and even the false prophet will stumble with you in night darkness, and I will destroy your mother [client nation].”
 
 -   The daylight refers to clear doctrinal teaching, to great warnings
     from both prophets and priests alike. The people had heard the truth
