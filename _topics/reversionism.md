@@ -86,7 +86,7 @@ The believer is in an absolute state (spiritual or carnal) while growing, just a
 
 Carnality can be either a temporary or permanent setback in the execution of God’s will, purpose, and plan for your life.
 
-1 Cor 3:1-3, “_And I, brethren, could not speak to you as to spiritual persons [believers filled with the Spirit], but as unto carnal [fleshly, belonging to the sin nature], as childish in Christ. I gave you milk [basic doctrine] to drink, not solid food, for you were not able to receive it, and you are still not able [to perceive it]. For you are still carnal, belonging to the sin nature [self-fragmented], for since there is jealousy and strife among you, are you not carnal and keep walking in conformity with men?_”
+1 Cor 3:1-3, “_And I, brethren, could not speak to you as to spiritual persons_ [believers filled with the Spirit], _but as unto carnal_ [fleshly, belonging to the sin nature], _as childish in Christ. I gave you milk [basic doctrine] to drink, not solid food, for you were not able to receive it, and you are still not able_ [to perceive it]. _For you are still carnal, belonging to the sin nature_ [self-fragmented], _for since there is jealousy and strife among you, are you not carnal and keep walking in conformity with men?_”
 
 * Carnality is manifest in implosion or self-fragmentation, and then in explosion or polarized fragmentation.
 
@@ -122,7 +122,7 @@ This reaction and distraction leads to fragmentation. Every believer is a walkin
 
 Arrogance is the number one distraction to Bible doctrine.
 
-**Rom 12:2-3**, “_Stop being conformed to this world [peer pressure], but be transformed by the renovation of your thought, that you may prove what the will of God is; namely, the good of intrinsic value achievement [advance to spiritual maturity], the well-pleasing to God, the mature status quo [manufacture of invisible hero]. For I say through the grace which has been given to me to every one who is among you, stop thinking of self in terms of arrogance beyond what you ought to think, but think in terms of sanity [absolute truth] for the purpose of being rational without illusion as God has assigned to each one of us a standard of thinking from doctrine._”
+**Rom 12:2-3**, “_Stop being conformed to this world_ [peer pressure], _but be transformed by the renovation of your thought, that you may prove what the will of God is; namely, the good of intrinsic value achievement_ [advance to spiritual maturity], _the well-pleasing to God, the mature status quo_ [manufacture of invisible hero]. _For I say through the grace which has been given to me to every one who is among you, stop thinking of self in terms of arrogance beyond what you ought to think, but think in terms of sanity_ [absolute truth] _for the purpose of being rational without illusion as God has assigned to each one of us a standard of thinking from doctrine._”
 
 Absolute truth is always related to reality. There are boundaries in which you must think. To be rational without illusion is the fantastic result of the daily perception, metabolization, and application of Bible doctrine. God has assigned to each one of us a standard of thinking from two categories of doctrine: the absolute principles of theology, and the applications that are given from those principles. Obviously, we cannot progress in the Christian life without the standard of thinking from doctrine. If we are not progressing through perception, metabolization, and application of doctrine, we are retrogressing. No one stands still in the Christian way of life.
 
@@ -163,7 +163,7 @@ Once negative volition sets in, there is a vacuum in the soul, which is the begi
 
 The first stage of reversionism includes not only the arrogance of cosmic one, but the acceptance of false doctrine as a result of rejecting true doctrine.
 
-* **1 Tim 4:1**, “_But the same Holy Spirit explicitly communicates that in latter periods of time [between first and Second Advents of Christ], some believers will become apostate from doctrine, paying attention to deceitful spirits and concentrating on doctrines of demons._”
+* **1 Tim 4:1**, “_But the same Holy Spirit explicitly communicates that in latter periods of time_ [between first and Second Advents of Christ], _some believers will become apostate from doctrine, paying attention to deceitful spirits and concentrating on doctrines of demons._”
 
 * **1 Tim 6:3-4**, “_If anyone teaches a different doctrine and does not concur with sound doctrine, even doctrines pertaining to godliness, he has received arrogance, understanding nothing. Furthermore, he has a morbid obsession about controversies and verbal conflicts from which originate jealousy, discord, evil speculation._”
 
@@ -200,9 +200,9 @@ The frantic search for happiness finds the believer going in the direction of th
 
 * To be content with what you have is +H, which comes from capacity in the soul. Capacity in the soul comes from Bible doctrine. The vacuum in the soul is the opposite of this, and inevitably results in the frantic search for happiness.
 
-**1 Tim 6:6-7**, “_But godliness is a means of great gain when accompanied by contentment [+H]. For we brought nothing into this world, with the result that we can take nothing out of it. And if we have food and clothing, with these we shall be content._”
+**1 Tim 6:6-7**, “_But godliness is a means of great gain when accompanied by contentment_ [+H]. _For we brought nothing into this world, with the result that we can take nothing out of it. And if we have food and clothing, with these we shall be content._”
 
-Phil 4:11, “Not that we speak on the basis of want, for I have learned to be content in whatever circumstances I am.”
+Phil 4:11, “_Not that we speak on the basis of want, for I have learned to be content in whatever circumstances I am._”
 
 Contentment is something you learn through perception, metabolization, and application of Bible doctrine.
 
@@ -306,23 +306,23 @@ As an appreciator, emotion is wonderful. But as the controller, emotion is a mon
 
 In the spiritual life of the believer, emotion is designed to respond to metabolized doctrine in the right lobe. But once emotion revolts, it becomes the aggressor and loses all normal function, becoming distorted. Then the believer becomes irrational and a flunky to the sin nature.
 
-**Rev 2:23**, “_And I will kill her children [Church Age believers] with death [sin unto death], and all the churches will know that I am He who searches the emotions and the right lobes._”
+**Rev 2:23**, “_And I will kill her children_ [Church Age believers] _with death_ [sin unto death], _and all the churches will know that I am He who searches the emotions and the right lobes._”
 
 Listing emotions first before the right lobes shows that the two are out of balance.
 
 When emotions revolt, they become the dictator and aggressor of soul, doctrine in the soul is neutralized or distorted, hindering the execution of the plan.
 
-Emotional revolt of the soul is described in **Phil 3:1** “_Whose destiny is destruction [sin unto death], whose god is their emotion, whose fame comes by means of dishonor, who keep on thinking about earthly things._”
+Emotional revolt of the soul is described in **Phil 3:1** “_Whose destiny is destruction_ [sin unto death], _whose god is their emotion, whose fame comes by means of dishonor, who keep on thinking about earthly things._”
 
 Emotional revolt of the soul divorces the believer from reality, and substitutes irrationality combined with arrogance to produce mental illness. Therefore, emotional revolt of the soul can quickly lead to psychopathy.
 
 Emotion is a hindrance to the perception of Bible doctrine, to consistent post-salvation epistemological rehabilitation.
 
-**2 Cor 6:11-12**, “_O you Corinthians! Our mouths [means of communication by Paul, Apollos, and Timothy] have been opened face to face with you; our right lobes have been enlarged [we were prepared]. Therefore, you have not been hindered by us [Paul, Apollos, Timothy], but you have been hindered by your own emotions._”
+**2 Cor 6:11-12**, “_O you Corinthians! Our mouths_ [means of communication by Paul, Apollos, and Timothy] _have been opened face to face with you; our right lobes have been enlarged_ [we were prepared]. _Therefore, you have not been hindered by us_ [Paul, Apollos, Timothy], _but you have been hindered by your own emotions._”
 
 Emotional revolt of the soul becomes a distraction to the execution of the plan.
 
-**Rom 16:17-18**, “_Now I urge you brethren, be alert for those who are causing dissensions and apostasies [false, reversionistic teaching] contrary to Bible doctrine which you have learned, for such believers do not obey our Lord Jesus Christ, but they obey their own emotions, serving themselves; and by smooth and flattering speech, they deceive the right lobes of the stupid [reversionists]._”
+**Rom 16:17-18**, “_Now I urge you brethren, be alert for those who are causing dissensions and apostasies_ [false, reversionistic teaching] _contrary to Bible doctrine which you have learned, for such believers do not obey our Lord Jesus Christ, but they obey their own emotions, serving themselves; and by smooth and flattering speech, they deceive the right lobes of the stupid_ [reversionists]._”
 
 Emotions have no capacity for thought, reason, or discernment. Therefore, the soul becomes blind, unreasonable, unrestrained, arrogant, immoral, legalistic, antinomian, and anti-doctrine.
 
@@ -388,7 +388,7 @@ Characteristics of negative volition toward doctrine.
 
 *_6. Blackout of the Soul_*
 
-**Eph 4:17** gives the technical Greek word for the blackout of the soul: MATAIOTES. MATAIOTES is a vacuum that sucks in false doctrine. Negative volition creates a vacuum in the soul. “Therefore, I communicate this, and because of the Lord, I insist that you no longer walk as Gentiles [unbelievers] walk in the vacuum of their mind.”
+**Eph 4:17** gives the technical Greek word for the blackout of the soul: MATAIOTES. MATAIOTES is a vacuum that sucks in false doctrine. Negative volition creates a vacuum in the soul. “_Therefore, I communicate this, and because of the Lord, I insist that you no longer walk as Gentiles_ [unbelievers] _walk in the vacuum of their mind._”
 
 * Through this vacuum comes the doctrine of demons, including religionism, liberalism, crusader arrogance, and anti-establishment thinking, **1 Tim 4:1**.
 
@@ -412,7 +412,7 @@ The apostle John describes blackout of the soul in:
 
 * **1 Jn 1:6**, “_If we contend that we have fellowship with Him and we keep on walking in darkness, we are lying and we do not live the truth._”
 
-* **1 Jn 2:11**, “_When anyone hates his fellow believer, he is in darkness     and he walks in darkness, and he does not know where he is going because the darkness has blinded his eyes._”
+* **1 Jn 2:11**, “_When anyone hates his fellow believer, he is in darkness and he walks in darkness, and he does not know where he is going because the darkness has blinded his eyes._”
 
 The blackout of the soul indicates ignorance of Bible doctrine, cosmic involvement, and the replacement of Bible doctrine with false doctrine.
 
@@ -428,7 +428,7 @@ The mechanics of the blackout of the soul include:
 
 Even the unbeliever, by being negative toward the Gospel, has blackout of the soul.
 
-**2 Cor 4:3**, “_Even if our Gospel is hidden, it is hidden to those who are perishing, in whose case the god of this world [Satan] has blinded the minds of those who are unbelieving that they might not see the light of the Gospel of the glory of Christ who is the image of God._”
+**2 Cor 4:3**, “_Even if our Gospel is hidden, it is hidden to those who are perishing, in whose case the god of this world_ [Satan] _has blinded the minds of those who are unbelieving that they might not see the light of the Gospel of the glory of Christ who is the image of God._”
 
 *_7. Scar Tissue of the Soul_*
 
@@ -460,17 +460,15 @@ Scar tissue of the soul is the final step into Christian degeneracy, because sca
 
 Scar tissue of the soul is the enemy of evangelism, **Jn 12:40.**
 
--   In 2 Pet 2:22, the unbeliever who is controlled by the cosmic system
-    with scar tissue of the soul is described. “It happens to them
-    according to the true proverb, \`The dog returns to his own vomit.’”
+* In **2 Pet 2:22**, the unbeliever who is controlled by the cosmic system with scar tissue of the soul is described. “_It happens to them according to the true proverb, `The dog returns to his own vomit.’_”
 
--   Scar tissue of the soul is the enemy of evangelism.
+* Scar tissue of the soul is the enemy of evangelism.
 
 **Rom 2:5**, “_But because of your hardness of heart and unrepentant right lobe, you gather up and accumulate wrath for yourself against the day of wrath, even the manifestation of the just judgment of God._”
 
 The mechanics of the unbeliever’s scar tissue are described in
 
-2 Thess.2:“And with every deception of evil for those who perish [unbelievers], because they did not receive the love for the truth so as to be saved. And for this reason, God sends to them a deluding influence so that they might believe a lie, in order that they all might be condemned in judgment who do not believe the truth, but take pleasure in unrighteousness.”
+**2 Thess.2**: “_And with every deception of evil for those who perish_ [unbelievers], _because they did not receive the love for the truth so as to be saved. And for this reason, God sends to them a deluding influence so that they might believe a lie, in order that they all might be condemned in judgment who do not believe the truth, but take pleasure in unrighteousness._”
 
 *_8. Reverse Process Reversionism*_
 
@@ -534,7 +532,7 @@ Christian degeneracy blots out and reverses all of the mandates, all of the norm
 
 * Phallic fragmentation or polarized antinomianism becomes reversionism, 2 Cor 12:21; Eph 4:19, 5:5; Col 3:5; Rev 2:14, 20-23.
 
-* Ascetic fragmentation becoming reversionism is characterized by     self-sacrifice and the Trappist monk syndrome, 1 Tim 4:5
+* Ascetic fragmentation becoming reversionism is characterized by self-sacrifice and the Trappist monk syndrome, 1 Tim 4:5
 
 * Mental attitude arrogance becomes reversionism and locked-in arrogance, 1 Tim 6:4,17.
 
@@ -558,7 +556,7 @@ Christian degeneracy blots out and reverses all of the mandates, all of the norm
 
 **Jer 9:25-26**, “_uncircumcised of heart._”
 
-**Heb 12:15**, “_falling from grace” means total malfunction of any grace modus operandi, and total ignorance of the grace policy of God in the plan._"
+**Heb 12:15**, “_falling from grace_” means total malfunction of any grace modus operandi, and total ignorance of the grace policy of God in the plan."
 
 **2 Pet 2:7-8**, “_the tortured soul._”
 
@@ -576,7 +574,7 @@ Christian degeneracy blots out and reverses all of the mandates, all of the norm
 
 **1 Pet 5:8**, “_Your adversary, the devil, prowls about like a roaring lion, seeking someone to devour._”
 
-“Devouring” is accomplished when you change your priorities by reverse process reversionism.
+“_Devouring_” is accomplished when you change your priorities by reverse process reversionism.
 
 **2 Tim 2:26**, “_they have entered the devil’s trap._”
 
@@ -692,7 +690,7 @@ Reversionism concentrates on false teaching, and therefore possesses the spirit 
 
 Reversionism contaminates others.
 
-Heb 12:15, “See to it that no one falls back from the grace of God, that no root of bitterness sprouting up causes trouble, and through this many be contaminated.”
+**Heb 12:15**, “_See to it that no one falls back from the grace of God, that no root of bitterness sprouting up causes trouble, and through this many be contaminated._”
 
 Reversionism causes the believer to lose his escrow blessings for both time and eternity,
 
