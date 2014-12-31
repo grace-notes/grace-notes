@@ -1,81 +1,40 @@
 ---
 title: Reversionism
+description:  a comprehensive study of the doctrine showing how the Lord deals with recalcitrant and implacable Christians.
 layout: lesson
 ---
 
+Portions of this study are taken from the teachings of Pastor R. B. Thieme, Jr., Berachah Church, Houston, Texas
 
-**Reversionism 15**
+**Definition and Description**
 
-**Reversionism**
+Reversionism is an act of reversing or turning in the opposite way, or a state of being so turned. As believers we were designed to execute the plan of God. But in reversionism we turn the other way and cannot be distinguished from our pre-salvation status. We are believers thinking human viewpoint.
 
-**Portions of this study are taken from the teachings of Pastor R. B.
-Thieme, Jr., Berachah Church, Houston, Texas**
+**Reversionism is the act of reverting to a former state, habit, belief, or practice of sinning.**
 
-Definition and Description
---------------------------
+**Reversionism is the status of the believer who fails to execute the plan of God for the Church Age. He returns to his pre-salvation modus operandi and modus vivendi.**
 
-Reversionism is an act of reversing or turning in the opposite way, or a
-state of being so turned. As believers we were designed to execute the
-plan of God. But in reversionism we turn the other way and cannot be
-distinguished from our pre-salvation status. We are believers thinking
-human viewpoint.
+Reversionism is a reversal of priorities, attitudes, affections, the object of personal love accompanied by the destruction of impersonal love, and the change of modus operandi and personality. Inside the cosmic system there is a complete change of personality.
 
-**Reversionism is the act of reverting to a former state, habit, belief,
-or practice of sinning.**
+The process of reverting begins with implosion, or exploding within, by yielding to the temptations of the sin nature. Implosion leads to explosion or fragmentation. Fragmentation unchecked leads to reversionism.
 
-**Reversionism is the status of the believer who fails to execute the
-plan of God for the Church Age. He returns to his pre-salvation modus
-operandi and modus vivendi.**
+Reversionism is maximum control of the sin nature over the life of the believer so that the believer functions under the dictates of the sin nature exactly as he did as an unbeliever.
 
-Reversionism is a reversal of priorities, attitudes, affections, the
-object of personal love accompanied by the destruction of impersonal
-love, and the change of modus operandi and personality. Inside the
-cosmic system there is a complete change of personality.
+The reversionistic believer is classified as a loser in the Christian life. He doesn’t lose his salvation; that’s impossible. But by failing to execute the plan of God, the loser loses his escrow blessings for time and eternity.
 
-The process of reverting begins with implosion, or exploding within, by
-yielding to the temptations of the sin nature. Implosion leads to
-explosion or fragmentation. Fragmentation unchecked leads to
-reversionism.
+Reversionism is a series of related failures in the spiritual life which results in failure to execute the plan of God, terminating in Christian degeneracy.
 
-Reversionism is maximum control of the sin nature over the life of the
-believer so that the believer functions under the dictates of the sin
-nature exactly as he did as an unbeliever.
+Christian degeneracy is defined as the decline from the normal standards of the plan of God for the Church Age through the process of implosion, explosion, and reversion. In this process, the Church Age believer remains unchecked by the utilization of confession of sin, and by other post-salvation problem solving devices of the plan.
 
-The reversionistic believer is classified as a loser in the Christian
-life. He doesn’t lose his salvation; that’s impossible. But by failing
-to execute the plan of God, the loser loses his escrow blessings for
-time and eternity.
+Therefore, the believer unchecked by confession of sin sinks into subnormal categories of personal sinning.
 
-Reversionism is a series of related failures in the spiritual life which
-results in failure to execute the plan of God, terminating in Christian
-degeneracy.
+Reversionism is lack of spiritual growth, apostasy, failure to attain the three stages of spiritual adulthood: (1) spiritual self-esteem, (2) spiritual autonomy, and (3) spiritual maturity.
 
-Christian degeneracy is defined as the decline from the normal standards
-of the plan of God for the Church Age through the process of implosion,
-explosion, and reversion. In this process, the Church Age believer
-remains unchecked by the utilization of confession of sin, and by other
-post-salvation problem solving devices of the plan.
+Reversionism is the believer’s retrogression because of negative volition toward the mystery doctrine of the Church Age, which both defines and reveals God’s plan, will, and purpose for your life. Reversionism is recession from any stage of spiritual growth through negative volition to doctrine. Reversionism is characterized by negative volition to doctrine, being influenced by evil, and results in perpetual carnality causing a life of perpetual discipline.
 
-Therefore, the believer unchecked by confession of sin sinks into
-subnormal categories of personal sinning.
+Reversion is a technical theological term used for rejecting absolute truth, and drawing into your mind or accepting relative truth.
 
-Reversionism is lack of spiritual growth, apostasy, failure to attain
-the three stages of spiritual adulthood: (1) spiritual self-esteem, (2)
-spiritual autonomy, and (3) spiritual maturity.
-
-Reversionism is the believer’s retrogression because of negative
-volition toward the mystery doctrine of the Church Age, which both
-defines and reveals God’s plan, will, and purpose for your life.
-Reversionism is recession from any stage of spiritual growth through
-negative volition to doctrine. Reversionism is characterized by negative
-volition to doctrine, being influenced by evil, and results in perpetual
-carnality causing a life of perpetual discipline.
-
-Reversion is a technical theological term used for rejecting absolute
-truth, and drawing into your mind or accepting relative truth.
-
-Reversion is a technical theological term for the results of
-fragmentation.
+Reversion is a technical theological term for the results of fragmentation.
 
 Fragmentation results in eight stages of reversionism.
 
@@ -83,114 +42,70 @@ Fragmentation results in eight stages of reversionism.
 
 2.  Frantic search for happiness.
 
-3.  Operation boomerang.
+2  Operation boomerang.
 
-4.  Emotional revolt of the soul.
+2  Emotional revolt of the soul.
 
-5.  Permanent negative volition.
+2  Permanent negative volition.
 
-6.  Blackout of the soul.
+2  Blackout of the soul.
 
-7.  Scar tissue of the soul.
+2  Scar tissue of the soul.
 
-8.  Reverse process reversionism.
+2  Reverse process reversionism.
 
-While the carnal believer can still be positive toward doctrine and
-faithful in using the confession of sin technique, the reversionistic
-believer is negative toward doctrine, has entered the vacuum of the
-soul, and does not consistently use the confession of sin technique. It
-takes only a moment to recover from carnality by the use of confession
-of sin, but it takes years to recover from reversionism.
+While the carnal believer can still be positive toward doctrine and faithful in using the confession of sin technique, the reversionistic believer is negative toward doctrine, has entered the vacuum of the soul, and does not consistently use the confession of sin technique. It takes only a moment to recover from carnality by the use of confession of sin, but it takes years to recover from reversionism.
 
-The reversionist cannot be distinguished from the unbeliever in mental
-attitude, modus vivendi, motivation, and modus operandi.
+The reversionist cannot be distinguished from the unbeliever in mental attitude, modus vivendi, motivation, and modus operandi.
 
-Reversionism can occur in both unbelievers, who reject the laws of
-divine establishment, or in believers, which is analogous to being under
-the influence of evil or being apostate.
+Reversionism can occur in both unbelievers, who reject the laws of divine establishment, or in believers, which is analogous to being under the influence of evil or being apostate.
 
-The reversionistic believer is under demon influence. The believer
-cannot be demon possessed, but he can come under demon influence. In
-demon influence, the soul of the unbeliever or reversionistic believer
-is infiltrated by false doctrine, called the “doctrine of demons” in
-1Tim 4:1. This comes through the vacuum of the mind, described in
-Ephesians 4:17 to 19.
+The reversionistic believer is under demon influence. The believer cannot be demon possessed, but he can come under demon influence. In demon influence, the soul of the unbeliever or reversionistic believer is infiltrated by false doctrine, called the “doctrine of demons” in 1Tim 4:1. This comes through the vacuum of the mind, described in Ephesians 4:17 to 19.
 
-Reversionism is a simple means of explaining that there are degrees of
-failure in the Christian life, just as there are degrees of success.
+Reversionism is a simple means of explaining that there are degrees of failure in the Christian life, just as there are degrees of success.
 
-### Reversionism and Carnality.
+**Reversionism and Carnality.**
 
 Reversionism must be distinguished from carnality.
 
-Carnality is an absolute which describes the believer out of fellowship
-with God and in a state of sin under the control of the sin nature,
+Carnality is an absolute which describes the believer out of fellowship with God and in a state of sin under the control of the sin nature,
 
 Rom 7
 
-Reversionism is relative. It is a relative state of apostasy and decline
-described by the various categories of retrogression. In reversionism,
-you are perpetually carnal.
+Reversionism is relative. It is a relative state of apostasy and decline described by the various categories of retrogression. In reversionism, you are perpetually carnal.
 
-A carnal believer is generally positive to doctrine, faithful in the use
-of the confession of sin technique, and never loses interest in
-Christian doctrine.
+A carnal believer is generally positive to doctrine, faithful in the use of the confession of sin technique, and never loses interest in Christian doctrine.
 
-The reversionistic believer follows the pattern of implosion, explosion,
-and sinks into the various stages of reversion unchecked by confession
-of sin.
+The reversionistic believer follows the pattern of implosion, explosion, and sinks into the various stages of reversion unchecked by confession of sin.
 
-While all reversionists are carnal, under the control of their sin
-natures, not all carnal believers are reversionistic.
+While all reversionists are carnal, under the control of their sin natures, not all carnal believers are reversionistic.
 
-Carnality can exist temporarily while the believer is advancing in the
-plan.
+Carnality can exist temporarily while the believer is advancing in the plan.
 
-The believer is in an absolute state (spiritual or carnal) while
-growing, just as he is in an absolute state while declining.
+The believer is in an absolute state (spiritual or carnal) while growing, just as he is in an absolute state while declining.
 
-Carnality can be either a temporary or permanent setback in the
-execution of God’s will, purpose, and plan for your life.
+Carnality can be either a temporary or permanent setback in the execution of God’s will, purpose, and plan for your life.
 
-1 Cor 3:1-3, “And I, brethren, could not speak to you as to spiritual
-persons [believers filled with the Spirit], but as unto carnal [fleshly,
-belonging to the sin nature], as childish in Christ. I gave you milk
-[basic doctrine] to drink, not solid food, for you were not able to
-receive it, and you are still not able [to perceive it]. For you are
-still carnal, belonging to the sin nature [self-fragmented], for since
-there is jealousy and strife among you, are you not carnal and keep
+1 Cor 3:1-3, “And I, brethren, could not speak to you as to spiritual persons [believers filled with the Spirit], but as unto carnal [fleshly, belonging to the sin nature], as childish in Christ. I gave you milk [basic doctrine] to drink, not solid food, for you were not able to receive it, and you are still not able [to perceive it]. For you are still carnal, belonging to the sin nature [self-fragmented], for since there is jealousy and strife among you, are you not carnal and keep
 walking in conformity with men?”
 
--   Carnality is manifest in implosion or self-fragmentation, and then
-    in explosion or polarized fragmentation.
+* Carnality is manifest in implosion or self-fragmentation, and then in explosion or polarized fragmentation.
 
--   You walk in conformity with men when in the stages of reversionism,
-    indistinguishable from unbelievers.
+* You walk in conformity with men when in the stages of reversionism, indistinguishable from unbelievers.
 
-### Categories of sinning related to reversionism.
+**categories of sinning related to reversionism.**
 
-Frequent sinning is the status quo of the believer who follows the
-pattern of implosion, explosion and the first four stages of
-reversionism. Frequent sinning is characterized by ignorance; therefore,
-failure to utilize the confession of sin technique.
+Frequent sinning is the status quo of the believer who follows the pattern of implosion, explosion and the first four stages of reversionism. Frequent sinning is characterized by ignorance; therefore, failure to utilize the confession of sin technique.
 
-Continuous sinning is the status quo of the believer who follows the
-pattern of implosion, explosion and the last four stages of
-reversionism.
+Continuous sinning is the status quo of the believer who follows the pattern of implosion, explosion and the last four stages of reversionism.
 
-Sporadic sinning is when the believer checks implosion, explosion and
-reversion by consistent use of confession of sin of 1 Jn 1:9, followed
-up with the use of the other problem solving devices. This is the status
-of the believer on his way to spiritual adulthood.
+Sporadic sinning is when the believer checks implosion, explosion and reversion by consistent use of confession of sin of 1 Jn 1:9, followed up with the use of the other problem solving devices. This is the status of the believer on his way to spiritual adulthood.
 
-Occasional sinning is when the believer checks implosion, explosion and
-reversion through rebound and the other problem solving devices. This is
-the status of the believer in spiritual adulthood.
+Occasional sinning is when the believer checks implosion, explosion and reversion through rebound and the other problem solving devices. This is the status of the believer in spiritual adulthood.
 
-The Eight Stages of Reversionism.
----------------------------------
+**The Eight Stages of Reversionism.**
 
-### 1. Reaction and Distraction.
+*_Reaction and Distraction._*
 
 By the time the believer has gone through implosion (self-fragmentation)
 and explosion (polarized fragmentation), he has become negative toward
