@@ -184,117 +184,113 @@ You have been **regenerated** (born spiritually into the family of God)
 
 * **Galatians 3:26**. _For you are all sons of God through faith in Christ Jesus._
 
-### Sons of God
+**Sons of God**
 
-* **John 1:12**. But as many as received Him, to them He gave the right to become children of God, even to those who believe in His name,
+* **John 1:12**. _But as many as received Him, to them He gave the right to become children of God, even to those who believe in His name,_
 
-* **2 Corinthians 6:18**. And I will be a father to you, And you shall be sons and daughters to Me,” Says the Lord Almighty.
+* **2 Corinthians 6:18**. _"And I will be a father to you, And you shall be sons and daughters to Me,” Says the Lord Almighty._
 
-* **1 John 3:2**. Beloved, now we are children of God, and it has not appeared as yet what we will be. We know that when He appears, we will be like Him, because we will see Him just as He is.
+* **1 John 3:2**. _Beloved, now we are children of God, and it has not appeared as yet what we will be. We know that when He appears, we will be like Him, because we will see Him just as He is._
 
-### New Creations
+**New Creations**
 
-* **2 Corinthians 5:17**. Therefore if anyone is in Christ, he is a new creature; the old things passed away; behold, new things have come.
+* **2 Corinthians 5:17**. _Therefore if anyone is in Christ, he is a new creature; the old things passed away; behold, new things have come._
 
-* **Galatians 6:15**. For neither is circumcision anything, nor uncircumcision, but a new creation.
+* **Galatians 6:15**. _For neither is circumcision anything, nor uncircumcision, but a new creation._
 
-* **Ephesians 2:10**. For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand so that we would walk in them.
+* **Ephesians 2:10**. _For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand so that we would walk in them._
 
-#### You have been made **acceptable to God**.
+**You have been made _acceptable to God_**.
 
-* **Ephesians 1:6**. to the praise of the glory of His grace, which He freely bestowed on us in the Beloved.
+* **Ephesians 1:6**. _to the praise of the glory of His grace, which He freely bestowed on us in the Beloved._
 
-* **1 Peter 2:5**. you also, as living stones, are being built up as a spiritual house for a holy priesthood, to offer up spiritual sacrifices acceptable to God through Jesus Christ.
+* **1 Peter 2:5**. _you also, as living stones, are being built up as a spiritual house for a holy priesthood, to offer up spiritual sacrifices acceptable to God through Jesus Christ._
 
 To make a believer acceptable to Himself, God sees to it that you have been:
 
-### Made righteous
+**Made righteous**
 
-* **Romans 3:22**. even the righteousness of God through faith in Jesus Christ for all those who believe; for there is no distinction;
+* **Romans 3:22**. _even the righteousness of God through faith in Jesus Christ for all those who believe; for there is no distinction;_
 
-* **1 Corinthians 1:30**. But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,
+* **1 Corinthians 1:30**. _But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,_
 
-* **2 Corinthians 5:21**. He made Him who knew no sin to be sin on our
-behalf, so that we might become the righteousness of God in Him.
+* **2 Corinthians 5:21**. _He made Him who knew no sin to be sin on our behalf, so that we might become the righteousness of God in Him._
 
-* **Philippians 3:9**. and may be found in Him, not having a righteousness of my own derived from the Law, but that which is through faith in Christ, the righteousness which comes from God on the basis of faith,
+* **Philippians 3:9**. _and may be found in Him, not having a righteousness of my own derived from the Law, but that which is through faith in Christ, the righteousness which comes from God on the basis of faith,_
 
-### Sanctified positionally
+**Sanctified positionally**
 
-* **1 Corinthians 1:30**. But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,
+* **1 Corinthians 1:30**. _But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,_
 
-* **1 Corinthians 6:11**. Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God.
+* **1 Corinthians 6:11**. _Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God._
 
-### Perfected forever
+**Perfected forever**
 
-* **Hebrews 10:14**. For by one offering He has perfected for all time those who are sanctified.
+* **Hebrews 10:14**. "_For by one offering He has perfected for all time those who are sanctified._"
 
-### Made qualified
+**Made qualified**
 
-* **Colossians 1:12**. giving thanks to the Father, who has qualified us to share in the inheritance of the saints in Light.
+* **Colossians 1:12**. "_giving thanks to the Father, who has qualified us to share in the inheritance of the saints in Light._"
 
-#### You have been **forgiven all trespasses** or sins
+**You have been _forgiven all trespasses_ or _sins_**
 
-* **Ephesians 1:7**. In Him we have redemption through His blood, the forgiveness of our trespasses, according to the riches of His grace
+* **Ephesians 1:7**. "_In Him we have redemption through His blood, the forgiveness of our trespasses, according to the riches of His grace._"
 
-* **Ephesians 4:32**. Be kind to one another, tender-hearted, forgiving each other, just as God in Christ also has forgiven you.
+* **Ephesians 4:32**. "_Be kind to one another, tender-hearted, forgiving each other, just as God in Christ also has forgiven you._"
 
-* **Colossians 1:14**. in whom we have redemption, the forgiveness of sins.
+* **Colossians 1:14**. "_in whom we have redemption, the forgiveness of sins._"
 
-* **Colossians 2:13**. When you were dead in your transgressions and the uncircumcision of your flesh, He made you alive together with Him, having forgiven us all our transgressions,
+* **Colossians 2:13**. "_When you were dead in your transgressions and the uncircumcision of your flesh, He made you alive together with Him, having forgiven us all our transgressions,_"
 
-* **Colossians 3:13**. bearing with one another, and forgiving each other,
-whoever has a complaint against anyone; just as the Lord forgave you, so
-also should you.
+* **Colossians 3:13**. "_bearing with one another, and forgiving each other, whoever has a complaint against anyone; just as the Lord forgave you, so also should you._"
 
-#### You have been made a **heavenly citizen** based on reconciliation.
+**You have been made a _heavenly citizen_ based on reconciliation.**
 
-* **Luke 10:20**. Nevertheless do not rejoice in this, that the spirits are subject to you, but rejoice that your names are recorded in heaven.”
+* **Luke 10:20**. "_Nevertheless do not rejoice in this, that the spirits are subject to you, but rejoice that your names are recorded in heaven._”
 
-* **Ephesians 2:13,19**. But now in Christ Jesus you who formerly were far off have been brought near by the blood of Christ. **19** So then you are no longer strangers and aliens, but you are fellow citizens with the saints, and are of God’s household,
+* **Ephesians 2:13,19**. "_But now in Christ Jesus you who formerly were far off have been brought near by the blood of Christ. **19** So then you are no longer strangers and aliens, but you are fellow citizens with the saints, and are of God’s household_"
 
-* **Philippians 3:20**. For our citizenship is in heaven, from which also we eagerly wait for a Savior, the Lord Jesus Christ;
+* **Philippians 3:20**. "_For our citizenship is in heaven, from which also we eagerly wait for a Savior, the Lord Jesus Christ;_"
 
-#### You have been **delivered from the kingdom of Satan**.
+**You have been _delivered from the kingdom of Satan_**
 
-* **Colossians 1:13**. For He rescued us from the domain of darkness, and transferred us to the kingdom of His beloved Son,
+* **Colossians 1:13**. "_For He rescued us from the domain of darkness, and transferred us to the kingdom of His beloved Son,_"
 
-* **Colossians 2:15**. When He had disarmed the rulers and authorities, He made a public display of them, having triumphed over them through Him.
+* **Colossians 2:15**. "_When He had disarmed the rulers and authorities, He made a public display of them, having triumphed over them through Him._"
 
-#### You have been **transferred into God’s kingdom**.
+**You have been _transferred into God’s kingdom_**.
 
-* **Colossians 1:13**. For He rescued us from the domain of darkness, and transferred us to the kingdom of His beloved Son,
+* **Colossians 1:13**. "_For He rescued us from the domain of darkness, and transferred us to the kingdom of His beloved Son,_
 
-#### You have been placed on a **secure foundation**.
+**You have been placed on a _secure foundation_**.
 
-* **1 Corinthians 3:11**. For no man can lay a foundation other than the one which is laid, which is Jesus Christ.
+* **1 Corinthians 3:11**. "_For no man can lay a foundation other than the one which is laid, which is Jesus Christ._"
 
-* **1 Corinthians 10:4**. and all drank the same spiritual drink, for they were drinking from a spiritual rock which followed them; and the rock was Christ.
+* **1 Corinthians 10:4**. "_and all drank the same spiritual drink, for they were drinking from a spiritual rock which followed them; and the rock was Christ._"
 
-* **Ephesians 2:20**. having been built on the foundation of the apostles and prophets, Christ Jesus Himself being the corner stone,
+* **Ephesians 2:20**. "_having been built on the foundation of the apostles and prophets, Christ Jesus Himself being the corner stone,_"
 
-#### You are a **gift from God the Father** to the Lord Jesus Christ.
+**You are a _gift from God the Father_ to the Lord Jesus Christ._
 
-* **[John 17:2, 6, 9, 11, 12, 24] ()**. even as You gave Him authority over all flesh, that to all whom You have given Him, He may give eternal life. **6** I have manifested Your name to the men whom You gave Me out of the world; they were Yours and You gave them to Me, and they have kept Your word. **9** I ask on their behalf; I do not ask on behalf of the world, but of those whom You have given Me; for they are Yours. **11** I am no longer in the world; and yet they themselves are in the world, and I come to You. Holy Father, keep them in Your name, the name which You have given Me, that they may be one even as We are. **12** While I was with them, I was keeping them in Your name which You have given Me; and I guarded them and not one of them perished but the son of perdition, so that the Scripture would be fulfilled. **24** Father, I desire that they also, whom You have given Me, be with Me where I am, so that they may see My glory which You have given Me, for You loved Me before the foundation of the world.
+* **John 17:2, 6, 9, 11, 12, 24**. "_even as You gave Him authority over all flesh, that to all whom You have given Him, He may give eternal life._ **6** _I have manifested Your name to the men whom You gave Me out of the world; they were Yours and You gave them to Me, and they have kept Your word." **9** _I ask on their behalf; I do not ask on behalf of the world, but of those whom You have given Me; for they are Yours._ **11** _I am no longer in the world; and yet they themselves are in the world, and I come to You. Holy Father, keep them in Your name, the name which You have given Me, that they may be one even as We are._ **12** _While I was with them, I was keeping them in Your name which You have given Me; and I guarded them and not one of them perished but the son of perdition, so that the Scripture would be fulfilled._ **24** _Father, I desire that they also, whom You have given Me, be with Me where I am, so that they may see My glory which You have given Me, for You loved Me before the foundation of the world._"
 
-#### You have been **delivered from the power of the sin nature**.
+**You have been _delivered from the power of the sin nature_**.
 
-* **Romans 2:29**. But he is a Jew who is one inwardly; and circumcision is that which is of the heart, by the Spirit, not by the letter; and his praise is not from men, but from God.
+* **Romans 2:29**. _But he is a Jew who is one inwardly; and circumcision is that which is of the heart, by the Spirit, not by the letter; and his praise is not from men, but from God._
 
-* **Philippians 3:3**. for we are the true circumcision, who worship in the Spirit of God and glory in Christ Jesus and put no confidence in the flesh,
+* **Philippians 3:3**. "_for we are the true circumcision, who worship in the Spirit of God and glory in Christ Jesus and put no confidence in the flesh,_"
 
-* **Colossians 2:11**. and in Him you were also circumcised with a circumcision made without hands, in the removal of the body of the flesh by the circumcision of Christ;
+* **Colossians 2:11**. "_and in Him you were also circumcised with a circumcision made without hands, in the removal of the body of the flesh by the circumcision of Christ;_"
 
-#### You have been **appointed as a priest** unto God.
+**You have been _appointed as a priest_ unto God.**
 
-* **1 Peter 2:5,9**. you also, as living stones, are being built up as a spiritual house for a holy priesthood, to offer up spiritual sacrifices acceptable to God through Jesus Christ. **9** But you are a chosen race, a royal priesthood, a holy nation, a people for God’s own possession, so that you may proclaim the excellencies of Him who has called you out of
-darkness into His marvelous light;
+* **1 Peter 2:5,9**. "_you also, as living stones, are being built up as a spiritual house for a holy priesthood, to offer up spiritual sacrifices acceptable to God through Jesus Christ._" **9** "_But you are a chosen race, a royal priesthood, a holy nation, a people for God’s own possession, so that you may proclaim the excellencies of Him who has called you out of darkness into His marvelous light;_"
 
-* **Revelation 1:6**. and He has made us to be a kingdom, priests to His God and Father—to Him be the glory and the dominion forever and ever.
+* **Revelation 1:6**. "_and He has made us to be a kingdom, priests to His God and Father—to Him be the glory and the dominion forever and ever._"
 
-#### You are **under the care of God** as a chosen generation and a protected people.
+**You are _under the care of God_ as a chosen generation and a protected people.**
 
-* **Titus 2:14**. who gave Himself for us to redeem us from every lawless deed, and to purify for Himself a people for His own possession, zealous for good deeds.
+* **Titus 2:14**. "_who gave Himself for us to redeem us from every lawless deed, and to purify for Himself a people for His own possession, zealous for good deeds._"
 
 * **1 Peter 2:9**. But you are a chosen race, a royal priesthood, a holy nation, a people for God’s own possession, so that you may proclaim the excellencies of Him who has called you out of darkness into His marvelous light;
 
