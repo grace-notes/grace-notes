@@ -270,7 +270,7 @@ To make a believer acceptable to Himself, God sees to it that you have been:
 
 * **Ephesians 2:20**. "_having been built on the foundation of the apostles and prophets, Christ Jesus Himself being the corner stone,_"
 
-**You are a _gift from God the Father_ to the Lord Jesus Christ._
+**You are a _gift from God the Father_ to the Lord Jesus Christ.**
 
 * **John 17:2, 6, 9, 11, 12, 24**. "_even as You gave Him authority over all flesh, that to all whom You have given Him, He may give eternal life._" **6** "_I have manifested Your name to the men whom You gave Me out of the world; they were Yours and You gave them to Me, and they have kept Your word._" **9** "_I ask on their behalf; I do not ask on behalf of the world, but of those whom You have given Me; for they are Yours._" **11** "_I am no longer in the world; and yet they themselves are in the world, and I come to You. Holy Father, keep them in Your name, the name which You have given Me, that they may be one even as We are._" **12** "_While I was with them, I was keeping them in Your name which You have given Me; and I guarded them and not one of them perished but the son of perdition, so that the Scripture would be fulfilled._" **24** "_Father, I desire that they also, whom You have given Me, be with Me where I am, so that they may see My glory which You have given Me, for You loved Me before the foundation of the world._"
 
