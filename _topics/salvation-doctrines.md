@@ -20,89 +20,89 @@ You are **in the eternal plan of God**, sharing the destiny of the Lord Jesus Ch
 
 **Foreknown**
 
-* **Acts 2:23**. _this Man, delivered over by the predetermined plan and foreknowledge of God, you nailed to a cross by the hands of godless men and put Him to death._
+* **Acts 2:23**. "_this Man, delivered over by the predetermined plan and foreknowledge of God, you nailed to a cross by the hands of godless men and put Him to death._"
 
-* **Romans 8:29**. _For those whom He foreknew, He also predestined to become conformed to the image of His Son, so that He would be the firstborn among many brethren;_
+* **Romans 8:29**. "_For those whom He foreknew, He also predestined to become conformed to the image of His Son, so that He would be the firstborn among many brethren;_"
 
-* **1 Peter 1:2**. _according to the foreknowledge of God the Father, by the sanctifying work of the Spirit, to obey Jesus Christ and be sprinkled with His blood: May grace and peace be yours in the fullest measure._
+* **1 Peter 1:2**. "_according to the foreknowledge of God the Father, by the sanctifying work of the Spirit, to obey Jesus Christ and be sprinkled with His blood: May grace and peace be yours in the fullest measure._"
 
 **Elect**
 
-* **Romans 8:33**. _Who will bring a charge against God’s elect? God is the one who justifies;_
+* **Romans 8:33**. "_Who will bring a charge against God’s elect? God is the one who justifies;_"
 
-* **[Colossians 3:12]()**. _So, as those who have been chosen of God, holy and beloved, put on a heart of compassion, kindness, humility, gentleness and patience;_
+* **Colossians 3:12**. "_So, as those who have been chosen of God, holy and beloved, put on a heart of compassion, kindness, humility, gentleness and patience;_"
 
-* **[1 Thessalonians 1:4]()**. _knowing, brethren beloved by God, His choice of you;_
+* **1 Thessalonians 1:4**. "_knowing, brethren beloved by God, His choice of you;_"
 
-* **[Titus 1:1]()**. _Paul, a bond-servant of God and an apostle of Jesus Christ, for the faith of those chosen of God and the knowledge of the truth which is according to godliness,_
+* **Titus 1:1**. "_Paul, a bond-servant of God and an apostle of Jesus Christ, for the faith of those chosen of God and the knowledge of the truth which is according to godliness,_"
 
-* **1 Peter 1:1, 2**. _Peter, an apostle of Jesus Christ, To those who reside as aliens, scattered throughout Pontus, Galatia, Cappadocia, Asia, and Bithynia, who are chosen_
+* **1 Peter 1:1, 2**. "_Peter, an apostle of Jesus Christ, To those who reside as aliens, scattered throughout Pontus, Galatia, Cappadocia, Asia, and Bithynia, who are chosen_"
 
 **Predestined**
 
-* **Romans 8:29, 30**. _For those whom He foreknew, He also predestined to become conformed to the image of His Son, so that *He would be the firstborn among many brethren; and these whom He predestined, He also called; and these whom He called, He also justified; and these whom He justified, He also glorified._
+* **Romans 8:29, 30**. "_For those whom He foreknew, He also predestined to become conformed to the image of His Son, so that *He would be the firstborn among many brethren; and these whom He predestined, He also called; and these whom He called, He also justified; and these whom He justified, He also glorified._"
 
-* **Ephesians 1:5.** _He predestined us to adoption as sons through Jesus Christ to Himself, according to the kind intention of His will_
+* **Ephesians 1:5.** "_He predestined us to adoption as sons through Jesus Christ to Himself, according to the kind intention of His will_"
 
-* **Ephesians 1:11**. _also we have obtained an inheritance, having been predestined according to His purpose who works all things after the counsel of His will,_
+* **Ephesians 1:11**. "_also we have obtained an inheritance, having been predestined according to His purpose who works all things after the counsel of His will,_"
 
 **Chosen in Christ**
 
-* **Matthew 22:14**. _For many are called, but few are chosen._
+* **Matthew 22:14**. "_For many are called, but few are chosen._"
 
-* **1 Peter 2:4**. _And coming to Him as to a living stone which has been rejected by men, but is choice and precious in the sight of God_
+* **1 Peter 2:4**. "_And coming to Him as to a living stone which has been rejected by men, but is choice and precious in the sight of God_"
 
 **Called**
 
-* **1 Thessalonians 5:24**. _Faithful is He who calls you, and He also will bring it to pass._
+* **1 Thessalonians 5:24**. "_Faithful is He who calls you, and He also will bring it to pass._"
 
 You have been **reconciled** …
 
 **Reconciled by God**
 
-* **2 Corinthians 5:18**. _Now all these things are from God, who reconciled us to Himself through Christ and gave us the ministry of reconciliation,_
+* **2 Corinthians 5:18**. "_Now all these things are from God, who reconciled us to Himself through Christ and gave us the ministry of reconciliation,_"
 
-* **Colossians 1:20**. _and through Him to reconcile all things to Himself, having made peace through the blood of His cross; through Him, I say, whether things on earth or things in heaven._
+* **Colossians 1:20**. "_and through Him to reconcile all things to Himself, having made peace through the blood of His cross; through Him, I say, whether things on earth or things in heaven._"
 
 **Reconciled to God**
 
-* **Romans 5:10**. _For if while we were enemies we were reconciled to God through the death of His Son, much more, having been reconciled, we shall be saved by His life._
+* **Romans 5:10**. "_For if while we were enemies we were reconciled to God through the death of His Son, much more, having been reconciled, we shall be saved by His life._"
 
-* **2 Corinthians 5:20**. _Therefore, we are ambassadors for Christ, as though God were making an appeal through us; we beg you on behalf of Christ, be reconciled to God._
+* **2 Corinthians 5:20**. "_Therefore, we are ambassadors for Christ, as though God were making an appeal through us; we beg you on behalf of Christ, be reconciled to God._"
 
-* **Ephesians 2:14-16**. _For He Himself is our peace, who made both groups into one and broke down the barrier of the dividing wall, by abolishing in His flesh the enmity, which is the Law of commandments contained in ordinances, so that in Himself He might make the two into one new man, thus establishing peace, and might reconcile them both in one body to God through the cross, by it having put to death the enmity._
+* **Ephesians 2:14-16**. "_For He Himself is our peace, who made both groups into one and broke down the barrier of the dividing wall, by abolishing in His flesh the enmity, which is the Law of commandments contained in ordinances, so that in Himself He might make the two into one new man, thus establishing peace, and might reconcile them both in one body to God through the cross, by it having put to death the enmity._"
 
 **You have been _redeemed_** (purchased from the slave market of sin).
 
-* **Romans 3:24**. _being justified as a gift by His grace through the redemption which is in Christ Jesus;_
+* **Romans 3:24**. "_being justified as a gift by His grace through the redemption which is in Christ Jesus;_"
 
-* **Colossians 1:14**. _in whom we have redemption, the forgiveness of sins._
+* **Colossians 1:14**. "_in whom we have redemption, the forgiveness of sins._"
 
-* **1 Peter 1:18**. _knowing that you were not redeemed with perishable things like silver or gold from your futile way of life inherited from your forefathers,_
+* **1 Peter 1:18**. "_knowing that you were not redeemed with perishable things like silver or gold from your futile way of life inherited from your forefathers,_"
 
-* **Ephesians 1:7**. _In Him we have redemption through His blood, the forgiveness of our trespasses, according to the riches of His grace_
+* **Ephesians 1:7**. "_In Him we have redemption through His blood, the forgiveness of our trespasses, according to the riches of His grace_"
 
 You have been **removed from condemnation.**
 
-* **John 3:18**. _He who believes in Him is not judged; he who does not believe has been judged already, because he has not believed in the name of the only begotten Son of God._
+* **John 3:18**. "_He who believes in Him is not judged; he who does not believe has been judged already, because he has not believed in the name of the only begotten Son of God._"
 
-* **John 5:24**. _Truly, truly, I say to you, he who hears My word, and believes Him who sent Me, has eternal life, and does not come into judgment, but has passed out of death into life._
+* **John 5:24**. "_Truly, truly, I say to you, he who hears My word, and believes Him who sent Me, has eternal life, and does not come into judgment, but has passed out of death into life._"
 
-* **Romans 8:1**. _Therefore there is now no condemnation for those who are in Christ Jesus._
+* **Romans 8:1**. "_Therefore there is now no condemnation for those who are in Christ Jesus._"
 
 You are **under grace** _and not under judgment (doctrine of propitiation)._
 
-* **Romans 3:24–28**. _being justified as a gift by His grace through the redemption which is in Christ Jesus; whom God displayed publicly as a propitiation in His blood through faith. This was to demonstrate His righteousness, because in the forbearance of God He passed over the sins previously committed; for the demonstration, I say, of His righteousness at the present time, so that He would be just and the justifier of the one who has faith in Jesus. Where then is boasting? It is excluded. By what kind of law? Of works? No, but by a law of faith. For we maintain that a man is justified by faith apart from works of the Law._
+* **Romans 3:24–28**. "_being justified as a gift by His grace through the redemption which is in Christ Jesus; whom God displayed publicly as a propitiation in His blood through faith. This was to demonstrate His righteousness, because in the forbearance of God He passed over the sins previously committed; for the demonstration, I say, of His righteousness at the present time, so that He would be just and the justifier of the one who has faith in Jesus. Where then is boasting? It is excluded. By what kind of law? Of works? No, but by a law of faith. For we maintain that a man is justified by faith apart from works of the Law._"
 
-* **1 John 2:2**. _and He Himself is the propitiation for our sins; and not for ours only, but also for those of the whole world._
+* **1 John 2:2**. "_and He Himself is the propitiation for our sins; and not for ours only, but also for those of the whole world._"
 
 Your **sins have been judged** by the spiritual death of Christ on the cross:
 
-* **Romans 4:25**. _He who was delivered over because of our transgressions, and was raised because of our justification._
+* **Romans 4:25**. "_He who was delivered over because of our transgressions, and was raised because of our justification._"
 
-* **Ephesians 1:7**. _In Him we have redemption through His blood, the forgiveness of our trespasses, according to the riches of His grace_
+* **Ephesians 1:7**. "_In Him we have redemption through His blood, the forgiveness of our trespasses, according to the riches of His grace_"
 
-* **1 Peter 2:24**. _and He Himself bore our sins in His body on the cross, so that we might die to sin and live to righteousness; for by His wounds you were healed._
+* **1 Peter 2:24**. "_and He Himself bore our sins in His body on the cross, so that we might die to sin and live to righteousness; for by His wounds you were healed._"
 
 You have been made **dead to the old life and alive unto God**. You are:
 
@@ -120,17 +120,17 @@ You have been made **dead to the old life and alive unto God**. You are:
 
 * **1 Peter 2:24**. _and He Himself bore our sins in His body on the cross, so that we might die to sin and live to righteousness; for by His wounds you were healed._
 
-** Buried with Christ**
+**Buried with Christ**
 
 * **Romans 6:4**. _Therefore we have been buried with Him through baptism into death, so that as Christ was raised from the dead through the glory of the Father, so we too might walk in newness of life._
 
 * **Colossians 2:12**. _having been buried with Him in baptism, in which you were also raised up with Him through faith in the working of God, who raised Him from the dead._
 
-** Risen with Christ**
+**Risen with Christ**
 
 * **Romans 6:4**. _Therefore we have been buried with Him through baptism into death, so that as Christ was raised from the dead through the glory of the Father, so we too might walk in newness of life._
 
-* **Colossians 3:1**. Therefore if you have been raised up with Christ, keep seeking the things above, where Christ is, seated at the right hand of God.
+* **Colossians 3:1**. "_Therefore if you have been raised up with Christ, keep seeking the things above, where Christ is, seated at the right hand of God._"
 
 You are **free from the law**.
 
