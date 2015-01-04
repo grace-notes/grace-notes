@@ -108,121 +108,121 @@ You have been made **dead to the old life and alive unto God**. You are:
 
 **Crucified with Christ**
 
-* **Romans 6:6**. _knowing this, that our old self was crucified with Him, in order that our body of sin might be done away with, so that we would no longer be slaves to sin;_
+* **Romans 6:6**. "_knowing this, that our old self was crucified with Him, in order that our body of sin might be done away with, so that we would no longer be slaves to sin;_"
 
-* **Galatians 2:20**. _I have been crucified with Christ; and it is no longer I who live, but Christ lives in me; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself up for me._
+* **Galatians 2:20**. "_I have been crucified with Christ; and it is no longer I who live, but Christ lives in me; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself up for me._"
 
 **Dead with Christ**
 
-* **Romans 6:8**. _Now if we have died with Christ, we believe that we shall also live with Him,_
+* **Romans 6:8**. "_Now if we have died with Christ, we believe that we shall also live with Him,_"
 
-* **Colossians 3:3**. _For you have died and your life is hidden with Christ in God._
+* **Colossians 3:3**. "_For you have died and your life is hidden with Christ in God._"
 
-* **1 Peter 2:24**. _and He Himself bore our sins in His body on the cross, so that we might die to sin and live to righteousness; for by His wounds you were healed._
+* **1 Peter 2:24**. "_and He Himself bore our sins in His body on the cross, so that we might die to sin and live to righteousness; for by His wounds you were healed._"
 
 **Buried with Christ**
 
-* **Romans 6:4**. _Therefore we have been buried with Him through baptism into death, so that as Christ was raised from the dead through the glory of the Father, so we too might walk in newness of life._
+* **Romans 6:4**. "_Therefore we have been buried with Him through baptism into death, so that as Christ was raised from the dead through the glory of the Father, so we too might walk in newness of life._"
 
-* **Colossians 2:12**. _having been buried with Him in baptism, in which you were also raised up with Him through faith in the working of God, who raised Him from the dead._
+* **Colossians 2:12**. "_having been buried with Him in baptism, in which you were also raised up with Him through faith in the working of God, who raised Him from the dead._"
 
 **Risen with Christ**
 
-* **Romans 6:4**. _Therefore we have been buried with Him through baptism into death, so that as Christ was raised from the dead through the glory of the Father, so we too might walk in newness of life._
+* **Romans 6:4**. "_Therefore we have been buried with Him through baptism into death, so that as Christ was raised from the dead through the glory of the Father, so we too might walk in newness of life._"
 
 * **Colossians 3:1**. "_Therefore if you have been raised up with Christ, keep seeking the things above, where Christ is, seated at the right hand of God._"
 
 You are **free from the law**.
 
-* **Romans 6:14**. _For sin shall not be master over you, for you are not under law but under grace._
+* **Romans 6:14**. "_For sin shall not be master over you, for you are not under law but under grace._"
 
-* **Romans 7:4-6**. _Therefore, my brethren, you also were made to die to the Law through the body of Christ, so that you might be joined to another, to Him who was raised from the dead, in order that we might bear fruit for God. For while we were in the flesh, the sinful passions, which were aroused by the Law, were at work in the members of our body to bear fruit for death. But now we have been released from the Law, having died to that by which we were bound, so that we serve in newness of the Spirit and not in oldness of the letter._
+* **Romans 7:4-6**. "_Therefore, my brethren, you also were made to die to the Law through the body of Christ, so that you might be joined to another, to Him who was raised from the dead, in order that we might bear fruit for God. For while we were in the flesh, the sinful passions, which were aroused by the Law, were at work in the members of our body to bear fruit for death. But now we have been released from the Law, having died to that by which we were bound, so that we serve in newness of the Spirit and not in oldness of the letter._"
 
-* **2 Corinthians 3:11**. _For if that which fades away was with glory, much more that which remains is in glory._
+* **2 Corinthians 3:11**. "_For if that which fades away was with glory, much more that which remains is in glory._"
 
-* **Galatians 3:25**. _But now that faith has come, we are no longer under a tutor [the Law]._
+* **Galatians 3:25**. "_But now that faith has come, we are no longer under a tutor_ [the Law]."
 
 You have been **adopted** (placed as an adult heir in the family of God)
 
-* **Romans 8:15**. _For you have not received a spirit of slavery leading to fear again, but you have received a spirit of adoption as sons by which we cry out, “Abba! Father!”_
+* **Romans 8:15**. "_For you have not received a spirit of slavery leading to fear again, but you have received a spirit of adoption as sons by which we cry out, 'Abba! Father!'_"
 
-* **Romans 8:23**. _And not only this, but also we ourselves, having the first fruits of the Spirit, even we ourselves groan within ourselves, waiting eagerly for our adoption as sons, the redemption of our body._
+* **Romans 8:23**. "_And not only this, but also we ourselves, having the first fruits of the Spirit, even we ourselves groan within ourselves, waiting eagerly for our adoption as sons, the redemption of our body._"
 
-* **Ephesians 1:5**. _He predestined us to adoption as sons through Jesus Christ to Himself, according to the kind intention of His will,_
+* **Ephesians 1:5**. "_He predestined us to adoption as sons through Jesus Christ to Himself, according to the kind intention of His will,_"
 
 You have been **justified** (declared righteous).
 
-* **Romans 3:24**. _being justified as a gift by His grace through the redemption which is in Christ Jesus;_
+* **Romans 3:24**. "_being justified as a gift by His grace through the redemption which is in Christ Jesus;_"
 
-* **Romans 5:1**. _Therefore, having been justified by faith, we have peace with God through our Lord Jesus Christ,_
+* **Romans 5:1**. "_Therefore, having been justified by faith, we have peace with God through our Lord Jesus Christ,_"
 
-* **Romans 5:9**. _Much more then, having now been justified by His blood, we shall be saved from the wrath of God through Him._
+* **Romans 5:9**. "_Much more then, having now been justified by His blood, we shall be saved from the wrath of God through Him._"
 
-* **Romans 8:30**. _and these whom He predestined, He also called; and these whom He called, He also justified; and these whom He justified, He also glorified._
+* **Romans 8:30**. "_and these whom He predestined, He also called; and these whom He called, He also justified; and these whom He justified, He also glorified._"
 
-* **1 Corinthians 6:11**. _Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God._
+* **1 Corinthians 6:11**. "_Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God._"
 
-* **Titus 3:7**. _so that being justified by His grace we would be made heirs according to *the* hope of eternal life._
+* **Titus 3:7**. "_so that being justified by His grace we would be made heirs according to *the* hope of eternal life._"
 
 You have been **regenerated** (born spiritually into the family of God)
 
-* **John 13:10**. _Jesus said to him, “He who has bathed needs only to wash his feet, but is completely clean; and you are clean, but not all of you._
+* **John 13:10**. "_Jesus said to him, “He who has bathed needs only to wash his feet, but is completely clean; and you are clean, but not all of you._"
 
-* **1 Corinthians 6:11**. _Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God._
+* **1 Corinthians 6:11**. "_Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God._"
 
-* **Titus 3:5**. _He saved us, not on the basis of deeds which we have done in righteousness, but according to His mercy, by the washing of regeneration and renewing by the Holy Spirit,_
+* **Titus 3:5**. "_He saved us, not on the basis of deeds which we have done in righteousness, but according to His mercy, by the washing of regeneration and renewing by the Holy Spirit,_"
 
 **By regeneration you are:**
 
 **Born Again**
 
-* **John 3:7.** _Do not be amazed that I said to you, ‘You must be born again._
+* **John 3:7.** "_Do not be amazed that I said to you, ‘You must be born again._"
 
-* **1 Peter 1:23**. _for you have been born again not of seed which is perishable but imperishable, that is, through the living and enduring word of God._
+* **1 Peter 1:23**. "_for you have been born again not of seed which is perishable but imperishable, that is, through the living and enduring word of God._"
 
 **Children of God**
 
-* **Galatians 3:26**. _For you are all sons of God through faith in Christ Jesus._
+* **Galatians 3:26**. "_For you are all sons of God through faith in Christ Jesus._"
 
 **Sons of God**
 
-* **John 1:12**. _But as many as received Him, to them He gave the right to become children of God, even to those who believe in His name,_
+* **John 1:12**. "_But as many as received Him, to them He gave the right to become children of God, even to those who believe in His name,_"
 
-* **2 Corinthians 6:18**. _"And I will be a father to you, And you shall be sons and daughters to Me,” Says the Lord Almighty._
+* **2 Corinthians 6:18**. "_'And I will be a father to you, And you shall be sons and daughters to Me,' Says the Lord Almighty._"
 
-* **1 John 3:2**. _Beloved, now we are children of God, and it has not appeared as yet what we will be. We know that when He appears, we will be like Him, because we will see Him just as He is._
+* **1 John 3:2**. "_Beloved, now we are children of God, and it has not appeared as yet what we will be. We know that when He appears, we will be like Him, because we will see Him just as He is._"
 
 **New Creations**
 
-* **2 Corinthians 5:17**. _Therefore if anyone is in Christ, he is a new creature; the old things passed away; behold, new things have come._
+* **2 Corinthians 5:17**. "_Therefore if anyone is in Christ, he is a new creature; the old things passed away; behold, new things have come._"
 
-* **Galatians 6:15**. _For neither is circumcision anything, nor uncircumcision, but a new creation._
+* **Galatians 6:15**. "_For neither is circumcision anything, nor uncircumcision, but a new creation._"
 
-* **Ephesians 2:10**. _For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand so that we would walk in them._
+* **Ephesians 2:10**. "_For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand so that we would walk in them._"
 
 **You have been made _acceptable to God_**.
 
-* **Ephesians 1:6**. _to the praise of the glory of His grace, which He freely bestowed on us in the Beloved._
+* **Ephesians 1:6**. "_to the praise of the glory of His grace, which He freely bestowed on us in the Beloved._"
 
-* **1 Peter 2:5**. _you also, as living stones, are being built up as a spiritual house for a holy priesthood, to offer up spiritual sacrifices acceptable to God through Jesus Christ._
+* **1 Peter 2:5**. "_you also, as living stones, are being built up as a spiritual house for a holy priesthood, to offer up spiritual sacrifices acceptable to God through Jesus Christ._"
 
 To make a believer acceptable to Himself, God sees to it that you have been:
 
 **Made righteous**
 
-* **Romans 3:22**. _even the righteousness of God through faith in Jesus Christ for all those who believe; for there is no distinction;_
+* **Romans 3:22**. "_even the righteousness of God through faith in Jesus Christ for all those who believe; for there is no distinction;_"
 
-* **1 Corinthians 1:30**. _But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,_
+* **1 Corinthians 1:30**. "_But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,_"
 
-* **2 Corinthians 5:21**. _He made Him who knew no sin to be sin on our behalf, so that we might become the righteousness of God in Him._
+* **2 Corinthians 5:21**. "_He made Him who knew no sin to be sin on our behalf, so that we might become the righteousness of God in Him._"
 
-* **Philippians 3:9**. _and may be found in Him, not having a righteousness of my own derived from the Law, but that which is through faith in Christ, the righteousness which comes from God on the basis of faith,_
+* **Philippians 3:9**. "_and may be found in Him, not having a righteousness of my own derived from the Law, but that which is through faith in Christ, the righteousness which comes from God on the basis of faith,_"
 
 **Sanctified positionally**
 
-* **1 Corinthians 1:30**. _But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,_
+* **1 Corinthians 1:30**. "_But by His doing you are in Christ Jesus, who became to us wisdom from God, and righteousness and sanctification, and redemption,_"
 
-* **1 Corinthians 6:11**. _Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God._
+* **1 Corinthians 6:11**. "_Such were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God._"
 
 **Perfected forever**
 
@@ -272,11 +272,11 @@ To make a believer acceptable to Himself, God sees to it that you have been:
 
 **You are a _gift from God the Father_ to the Lord Jesus Christ._
 
-* **John 17:2, 6, 9, 11, 12, 24**. "_even as You gave Him authority over all flesh, that to all whom You have given Him, He may give eternal life._ **6** _I have manifested Your name to the men whom You gave Me out of the world; they were Yours and You gave them to Me, and they have kept Your word." **9** _I ask on their behalf; I do not ask on behalf of the world, but of those whom You have given Me; for they are Yours._ **11** _I am no longer in the world; and yet they themselves are in the world, and I come to You. Holy Father, keep them in Your name, the name which You have given Me, that they may be one even as We are._ **12** _While I was with them, I was keeping them in Your name which You have given Me; and I guarded them and not one of them perished but the son of perdition, so that the Scripture would be fulfilled._ **24** _Father, I desire that they also, whom You have given Me, be with Me where I am, so that they may see My glory which You have given Me, for You loved Me before the foundation of the world._"
+* **John 17:2, 6, 9, 11, 12, 24**. "_even as You gave Him authority over all flesh, that to all whom You have given Him, He may give eternal life._" **6** "_I have manifested Your name to the men whom You gave Me out of the world; they were Yours and You gave them to Me, and they have kept Your word._" **9** "_I ask on their behalf; I do not ask on behalf of the world, but of those whom You have given Me; for they are Yours._" **11** "_I am no longer in the world; and yet they themselves are in the world, and I come to You. Holy Father, keep them in Your name, the name which You have given Me, that they may be one even as We are._" **12** "_While I was with them, I was keeping them in Your name which You have given Me; and I guarded them and not one of them perished but the son of perdition, so that the Scripture would be fulfilled._" **24** "_Father, I desire that they also, whom You have given Me, be with Me where I am, so that they may see My glory which You have given Me, for You loved Me before the foundation of the world._"
 
 **You have been _delivered from the power of the sin nature_**.
 
-* **Romans 2:29**. _But he is a Jew who is one inwardly; and circumcision is that which is of the heart, by the Spirit, not by the letter; and his praise is not from men, but from God._
+* **Romans 2:29**. "_But he is a Jew who is one inwardly; and circumcision is that which is of the heart, by the Spirit, not by the letter; and his praise is not from men, but from God._"
 
 * **Philippians 3:3**. "_for we are the true circumcision, who worship in the Spirit of God and glory in Christ Jesus and put no confidence in the flesh,_"
 
@@ -292,223 +292,223 @@ To make a believer acceptable to Himself, God sees to it that you have been:
 
 * **Titus 2:14**. "_who gave Himself for us to redeem us from every lawless deed, and to purify for Himself a people for His own possession, zealous for good deeds._"
 
-* **1 Peter 2:9**. But you are a chosen race, a royal priesthood, a holy nation, a people for God’s own possession, so that you may proclaim the excellencies of Him who has called you out of darkness into His marvelous light;
+* **1 Peter 2:9**. "_But you are a chosen race, a royal priesthood, a holy nation, a people for God’s own possession, so that you may proclaim the excellencies of Him who has called you out of darkness into His marvelous light;_"
 
-#### You have been given **access to God**.
+**You have been given _access to God_**.
 
-* **Romans 5:2**. through whom also we have obtained our introduction by faith into this grace in which we stand; and we exult in hope of the glory of God.
+* **Romans 5:2**. "_through whom also we have obtained our introduction by faith into this grace in which we stand; and we exult in hope of the glory of God._"
 
-* **Ephesians 2:18**. for through Him we both have our access in one Spirit to the Father.
+* **Ephesians 2:18**. "_for through Him we both have our access in one Spirit to the Father._"
 
-* **Hebrews 4:14,16**. Therefore, since we have a great high priest who has passed through the heavens, Jesus the Son of God, let us hold fast our confession. **16** Therefore let us draw near with confidence to the throne of grace, so that we may receive mercy and find grace to help in time of need.
+* **Hebrews 4:14,16**. "_Therefore, since we have a great high priest who has passed through the heavens, Jesus the Son of God, let us hold fast our confession._" **16** "_Therefore let us draw near with confidence to the throne of grace, so that we may receive mercy and find grace to help in time of need._"
 
-* **Hebrews 10:19,20**. Therefore, brethren, since we have confidence to enter the holy place by the blood of Jesus, by a new and living way which He inaugurated for us through the veil, that is, His flesh,
+* **Hebrews 10:19,20**. "_Therefore, brethren, since we have confidence to enter the holy place by the blood of Jesus, by a new and living way which He inaugurated for us through the veil, that is, His flesh,_"
 
-#### You are **within the much more care of God.**
+**You are _within the much more care of God._**
 
-### Objects of His love
+**Objects of His love**
 
-* **Ephesians 2:4**. But God, being rich in mercy, because of His great love with which He loved us,
+* **Ephesians 2:4**. "_But God, being rich in mercy, because of His great love with which He loved us,_"
 
-* **Ephesians 5:2**. and walk in love, just as Christ also loved you and gave Himself up for us, an offering and a sacrifice to God as a fragrant aroma.
+* **Ephesians 5:2**. "_and walk in love, just as Christ also loved you and gave Himself up for us, an offering and a sacrifice to God as a fragrant aroma._"
 
-### Objects of His grace
+**Objects of His grace**
 
-* **For salvation**, **Ephesians 2:8,9**. For by grace you have been saved through faith; and that not of yourselves, it is the gift of God; not as a result of works, so that no one may boast.
+* **For salvation**, **Ephesians 2:8,9**. "_For by grace you have been saved through faith; and that not of yourselves, it is the gift of God; not as a result of works, so that no one may boast._"
 
-* **For keeping**, **Romans 5:2**. and walk in love, just as Christ also loved you and gave Himself up for us, an offering and a sacrifice to God as a fragrant aroma.
+* **For keeping**, **Romans 5:2**. "_and walk in love, just as Christ also loved you and gave Himself up for us, an offering and a sacrifice to God as a fragrant aroma._"
 
-* **1 Peter 1:5**. who are protected by the power of God through faith for a salvation ready to be revealed in the last time.
+* **1 Peter 1:5**. "_who are protected by the power of God through faith for a salvation ready to be revealed in the last time._"
 
-* **For service**, **John 17:18**. As You sent Me into the world, I also have sent them into the world.
+* **For service**, **John 17:18**. "_As You sent Me into the world, I also have sent them into the world._"
 
-* **Ephesians 4:7**. But to each one of us grace was given according to the measure of Christ’s gift.
+* **Ephesians 4:7**. "_But to each one of us grace was given according to the measure of Christ’s gift._"
 
-**For instruction**, **Titus 2:12**. instructing us to deny ungodliness and worldly desires and to live sensibly, righteously and godly in the present age,
+**For instruction**, **Titus 2:12**. "_instructing us to deny ungodliness and worldly desires and to live sensibly, righteously and godly in the present age,_"
 
-### Objects of His power
+**Objects of His power**
 
-* **Ephesians 1:19**. and what is the surpassing greatness of His power toward us who believe. These are in accordance with the working of the strength of His might
+* **Ephesians 1:19**. "_and what is the surpassing greatness of His power toward us who believe. These are in accordance with the working of the strength of His might_"
 
-* **Philippians 2:13**. for it is God who is at work in you, both to will and to work for His good pleasure.
+* **Philippians 2:13**. "_for it is God who is at work in you, both to will and to work for His good pleasure._"
 
-### Objects of His faithfulness
+**Objects of His faithfulness**
 
-* **Philippians 1:6**. For I am confident of this very thing, that He who began a good work in you will perfect it until the day of Christ Jesus.
+* **Philippians 1:6**. "_For I am confident of this very thing, that He who began a good work in you will perfect it until the day of Christ Jesus._"
 
-* **Hebrews 13:5**. Make sure that your character is free from the love of money, being content with what you have; for He Himself has said, “I will never desert you, nor will I ever forsake you,”
+* **Hebrews 13:5**. "_Make sure that your character is free from the love of money, being content with what you have; for He Himself has said, “I will never desert you, nor will I ever forsake you,'_”
 
-### Objects of His peace
+**Objects of His peace**
 
-* **John 14:27**. Peace I leave with you; My peace I give to you; not as the world gives do I give to you. Do not let your heart be troubled, nor let it be fearful.
+* **John 14:27**. "_Peace I leave with you; My peace I give to you; not as the world gives do I give to you. Do not let your heart be troubled, nor let it be fearful._"
 
-### Objects of His consolation
+**Objects of His consolation**
 
-* **2 Thessalonians 2:16**. Now may our Lord Jesus Christ Himself and God our Father, who has loved us and given us eternal comfort and good hope by grace,
+* **2 Thessalonians 2:16**. "_Now may our Lord Jesus Christ Himself and God our Father, who has loved us and given us eternal comfort and good hope by grace,_"
 
-### Objects of His intercession
+**Objects of His intercession**
 
-* **Romans 8:34**. who is the one who condemns? Christ Jesus is He who died, yes, rather who was raised, who is at the right hand of God, who also intercedes for us.
+* **Romans 8:34**. "_who is the one who condemns? Christ Jesus is He who died, yes, rather who was raised, who is at the right hand of God, who also intercedes for us._"
 
-* **Romans 7:25**. Thanks be to God through Jesus Christ our Lord! So then, on the one hand I myself with my mind am serving the law of God, but on the other, with my flesh the law of sin.
+* **Romans 7:25**. "_Thanks be to God through Jesus Christ our Lord! So then, on the one hand I myself with my mind am serving the law of God, but on the other, with my flesh the law of sin._"
 
-* **Romans 9:24**. even us, whom He also called, not from among Jews only, but also from among Gentiles.
+* **Romans 9:24**. "_even us, whom He also called, not from among Jews only, but also from among Gentiles._"
 
-#### You are a beneficiary of the inheritance from God (**an heir of God and a joint-heir with the Lord Jesus Christ**).
+**You are a beneficiary of the inheritance from God (_an heir of God and a joint-heir with the Lord Jesus Christ_).**
 
-* **Romans 8:17**. and if children, heirs also, heirs of God and fellow heirs with Christ, if indeed we suffer with Him so that we may also be glorified with Him.
+* **Romans 8:17**. "_and if children, heirs also, heirs of God and fellow heirs with Christ, if indeed we suffer with Him so that we may also be glorified with Him._"
 
-* **Ephesians 1:14,18.**who is given as a pledge of our inheritance, with a view to the redemption of God’s own possession, to the praise of His glory. **18** I pray that the eyes of your heart may be enlightened, so that you will know what is the hope of His calling, what are the riches of the glory of His inheritance in the saints,
+* **Ephesians 1:14,18.** "_who is given as a pledge of our inheritance, with a view to the redemption of God’s own possession, to the praise of His glory._" **18** "_I pray that the eyes of your heart may be enlightened, so that you will know what is the hope of His calling, what are the riches of the glory of His inheritance in the saints,_"
 
-* **Colossians 3:24**. knowing that from the Lord you will receive the reward of the inheritance. It is the Lord Christ whom you serve.
+* **Colossians 3:24**. "_knowing that from the Lord you will receive the reward of the inheritance. It is the Lord Christ whom you serve._"
 
-* **Hebrews 9:15**. For this reason He is the mediator of a new covenant, so that, since a death has taken place for the redemption of the transgressions that were committed under the first covenant, those who have been called may receive the promise of the eternal inheritance.
+* **Hebrews 9:15**. "_For this reason He is the mediator of a new covenant, so that, since a death has taken place for the redemption of the transgressions that were committed under the first covenant, those who have been called may receive the promise of the eternal inheritance._"
 
-* **1 Peter 1:4**. to obtain an inheritance which is imperishable and undefiled and will not fade away, reserved in heaven for you,
+* **1 Peter 1:4**. "_to obtain an inheritance which is imperishable and undefiled and will not fade away, reserved in heaven for you,_"
 
-#### You have a **new position in Christ**.
+**You have a _new position in Christ_**.
 
-* **Ephesians 2:6**. and raised us up with Him, and seated us with Him in the heavenly places in Christ Jesus,
+* **Ephesians 2:6**. "_and raised us up with Him, and seated us with Him in the heavenly places in Christ Jesus,_"
 
-* **Colossians 3:4**. When Christ, who is our life, is revealed, then you also will be revealed with Him in glory.
+* **Colossians 3:4**. "_When Christ, who is our life, is revealed, then you also will be revealed with Him in glory._"
 
-* **1 Corinthians 1:9**. God is faithful, through whom you were called into fellowship with His Son, Jesus Christ our Lord.
+* **1 Corinthians 1:9**. "_God is faithful, through whom you were called into fellowship with His Son, Jesus Christ our Lord._"
 
-* **1 Corinthians 3:9**. For we are God’s fellow workers; you are God’s field, God’s building.
+* **1 Corinthians 3:9**. "_For we are God’s fellow workers; you are God’s field, God’s building._"
 
-* **2 Corinthians 3:3,6**. being manifested that you are a letter of Christ, cared for by us, written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts. **6** who also made us adequate as servants of a new covenant, not of the letter but of the Spirit; for the letter kills, but the Spirit gives life.
+* **2 Corinthians 3:3,6**. "_being manifested that you are a letter of Christ, cared for by us, written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts._" **6** "_who also made us adequate as servants of a new covenant, not of the letter but of the Spirit; for the letter kills, but the Spirit gives life._"
 
-* **2 Corinthians 5:20**. Therefore, we are ambassadors for Christ, as though God were making an appeal through us; we beg you on behalf of Christ, be reconciled to God.
+* **2 Corinthians 5:20**. "_Therefore, we are ambassadors for Christ, as though God were making an appeal through us; we beg you on behalf of Christ, be reconciled to God._"
 
-* **2 Corinthians 6:1,4**. And working together with Him, we also urge you not to receive the grace of God in vain **4** but in everything commending ourselves as servants of God, in much endurance, in afflictions, in hardships, in distresses,
+* **2 Corinthians 6:1,4**. "_And working together with Him, we also urge you not to receive the grace of God in vain_" **4** "_but in everything commending ourselves as servants of God, in much endurance, in afflictions, in hardships, in distresses,_"
 
-#### You are the **recipient of eternal life**.
+**You are the _recipient of eternal life_**.
 
-* **John 3:15**. so that whoever believes will in Him have eternal life.
+* **John 3:15**. "_so that whoever believes will in Him have eternal life._"
 
-* **John 10:28**. and I give eternal life to them, and they will never perish; and no one will snatch them out of My hand.
+* **John 10:28**. "_and I give eternal life to them, and they will never perish; and no one will snatch them out of My hand._"
 
-* **John 20:31**. but these have been written so that you may believe that Jesus is the Christ, the Son of God; and that believing you may have life in His name.
+* **John 20:31**. "_but these have been written so that you may believe that Jesus is the Christ, the Son of God; and that believing you may have life in His name._"
 
-* **1 John 5:11,12**. And the testimony is this, that God has given us eternal life, and this life is in His Son. He who has the Son has the life; he who does not have the Son of God does not have the life.
+* **1 John 5:11,12**. "_And the testimony is this, that God has given us eternal life, and this life is in His Son. He who has the Son has the life; he who does not have the Son of God does not have the life._"
 
-#### You are a **member of the family of God**.
+**You are a _member of the family of God_**.
 
-* **Galatians 6:10**. So then, while we have opportunity, let us do good to all people, and especially to those who are of the household of the faith.
+* **Galatians 6:10**. "_So then, while we have opportunity, let us do good to all people, and especially to those who are of the household of the faith._"
 
-* **Ephesians 2:19**. So then you are no longer strangers and aliens, but you are fellow citizens with the saints, and are of God’s household,
+* **Ephesians 2:19**. "_So then you are no longer strangers and aliens, but you are fellow citizens with the saints, and are of God’s household,_"
 
-#### You are **Light in the Lord**.
+**You are _Light in the Lord_**.
 
-* **Ephesians 5:8**. for you were formerly darkness, but now you are Light in the Lord; walk as children of Light
+* **Ephesians 5:8**. "_for you were formerly darkness, but now you are Light in the Lord; walk as children of Light_"
 
-* **1 Thessalonians 5:4**. But you, brethren, are not in darkness, that the day would overtake you like a thief;
+* **1 Thessalonians 5:4**. "_But you, brethren, are not in darkness, that the day would overtake you like a thief;_"
 
-#### You are **united with the Father**.
+**You are _united with the Father_**.
 
-* **1 Thessalonians 1:1**. Paul and Silvanus and Timothy, To the church of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace.
+* **1 Thessalonians 1:1**. "_Paul and Silvanus and Timothy, To the church of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace._"
 
-* cf **Ephesians 4:6**. one God and Father of all who is over all and through all and in all.
+* cf **Ephesians 4:6**. "_one God and Father of all who is over all and through all and in all._"
 
-### United with Christ
+**United with Christ**
 
-* **John 14:20**. In that day you will know that I am in My Father, and you in Me, and I in you.
+* **John 14:20**. "_In that day you will know that I am in My Father, and you in Me, and I in you._"
 
-* cf. **Colossians 1:27**. to whom God willed to make known what is the riches of the glory of this mystery among the Gentiles, which is Christ in you, the hope of glory.
+* cf. **Colossians 1:27**. "_to whom God willed to make known what is the riches of the glory of this mystery among the Gentiles, which is Christ in you, the hope of glory._"
 
-### A member of His body
+**A member of His body**
 
-* **1 Corinthians 12:13**. For by one Spirit we were all baptized into one body, whether Jews or Greeks, whether slaves or free, and we were all made to drink of one Spirit.
+* **1 Corinthians 12:13**. "_For by one Spirit we were all baptized into one body, whether Jews or Greeks, whether slaves or free, and we were all made to drink of one Spirit._"
 
-### A branch in the vine
+**A branch in the vine**
 
-* **John 15:5**. I am the vine, you are the branches; he who abides in Me and I in him, he bears much fruit, for apart from Me you can do nothing.
+* **John 15:5**. "_I am the vine, you are the branches; he who abides in Me and I in him, he bears much fruit, for apart from Me you can do nothing._"
 
-### A stone in the building
+**A stone in the building**
 
-* **Ephesians 2:21,22**. in whom the whole building, being fitted together, is growing into a holy temple in the Lord, in whom you also are being built together into a dwelling of God in the Spirit.
+* **Ephesians 2:21,22**. "_in whom the whole building, being fitted together, is growing into a holy temple in the Lord, in whom you also are being built together into a dwelling of God in the Spirit._"
 
-### A part of His bride
+**A part of His bride**
 
-* **Ephesians 5:25-27**. Husbands, love your wives, just as Christ also loved the church and gave Himself up for her, so that He might sanctify her, having cleansed her by the washing of water with the word, that He might present to Himself the church in all her glory, having no spot or wrinkle or any such thing; but that she would be holy and blameless.
+* **Ephesians 5:25-27**. "_Husbands, love your wives, just as Christ also loved the church and gave Himself up for her, so that He might sanctify her, having cleansed her by the washing of water with the word, that He might present to Himself the church in all her glory, having no spot or wrinkle or any such thing; but that she would be holy and blameless._"
 
-### A priest in His kingdom
+**A priest in His kingdom**
 
-* **1 Peter 2:9**. But you are a chosen race, a royal priesthood, a holy nation, a people for God’s own possession, so that you may proclaim the excellencies of Him who has called you out of darkness into His marvelous light;
+* **1 Peter 2:9**. "_But you are a chosen race, a royal priesthood, a holy nation, a people for God’s own possession, so that you may proclaim the excellencies of Him who has called you out of darkness into His marvelous light;_"
 
-### A saint of the new species
+**A saint of the new species**
 
-* **2 Corinthians 5:17**. Therefore if anyone is in Christ, he is a new creature; the old things passed away; behold, new things have come.
+* **2 Corinthians 5:17**. "_Therefore if anyone is in Christ, he is a new creature; the old things passed away; behold, new things have come._"
 
-### United with the Holy Spirit
+**United with the Holy Spirit**
 
-* **Romans 8:9‑11**. However, you are not in the flesh but in the Spirit, if indeed the Spirit of God dwells in you. But if anyone does not have the Spirit of Christ, he does not belong to Him. If Christ is in you, though the body is dead because of sin, yet the spirit is alive because of righteousness. But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ Jesus from the dead will also give life to your mortal bodies through His Spirit who dwells in you.
+* **Romans 8:9‑11**. "_However, you are not in the flesh but in the Spirit, if indeed the Spirit of God dwells in you. But if anyone does not have the Spirit of Christ, he does not belong to Him. If Christ is in you, though the body is dead because of sin, yet the spirit is alive because of righteousness. But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ Jesus from the dead will also give life to your mortal bodies through His Spirit who dwells in you._"
 
-#### You are the **recipient of the ministry of the Holy Spirit.**
+**You are the _recipient of the ministry of the Holy Spirit._**
 
-### Born of the spirit
+**Born of the spirit**
 
-* **John 3:6**. That which is born of the flesh is flesh, and that which is born of the Spirit is spirit.
+* **John 3:6**. "_That which is born of the flesh is flesh, and that which is born of the Spirit is spirit._"
 
-### Baptized by the spirit
+**Baptized by the spirit**
 
-* **1 Corinthians 12:13**. For by one Spirit we were all baptized into one body, whether Jews or Greeks, whether slaves or free, and we were all made to drink of one Spirit.
+* **1 Corinthians 12:13**. "For by one Spirit we were all baptized into one body, whether Jews or Greeks, whether slaves or free, and we were all made to drink of one Spirit."
 
-### Indwelt by the spirit
+**Indwelt by the spirit**
 
-* **John 7:39**. But this He spoke of the Spirit, whom those who believed in Him were to receive; for the Spirit was not yet given, because Jesus was not yet glorified.
+* **John 7:39**. "_But this He spoke of the Spirit, whom those who believed in Him were to receive; for the Spirit was not yet given, because Jesus was not yet glorified._"
 
-* **Romans 5:5**. and hope does not disappoint, because the love of God has been poured out within our hearts through the Holy Spirit who was given to us.
+* **Romans 5:5**. "_and hope does not disappoint, because the love of God has been poured out within our hearts through the Holy Spirit who was given to us._"
 
-* **Romans 8:9**. However, you are not in the flesh but in the Spirit, if indeed the Spirit of God dwells in you. But if anyone does not have the Spirit of Christ, he does not belong to Him.
+* **Romans 8:9**. "_However, you are not in the flesh but in the Spirit, if indeed the Spirit of God dwells in you. But if anyone does not have the Spirit of Christ, he does not belong to Him._"
 
-* **1 Corinthians 3:16**. Do you not know that you are a temple of God and that the Spirit of God dwells in you?
+* **1 Corinthians 3:16**. "_Do you not know that you are a temple of God and that the Spirit of God dwells in you?_"
 
-* **1 Corinthians 6:19**. Or do you not know that your body is a temple of the Holy Spirit who is in you, whom you have from God, and that you are not your own?
+* **1 Corinthians 6:19**. "_Or do you not know that your body is a temple of the Holy Spirit who is in you, whom you have from God, and that you are not your own?_"
 
-* **Galatians 4:6**. Because you are sons, God has sent forth the Spirit of His Son into our hearts, crying, “Abba! Father!”
+* **Galatians 4:6**. "_Because you are sons, God has sent forth the Spirit of His Son into our hearts, crying, 'Abba! Father!'_"
 
-* **1 John 3:24**. The one who keeps His commandments abides in Him, and He in him. We know by this that He abides in us, by the Spirit whom He has given us.
+* **1 John 3:24**. "_The one who keeps His commandments abides in Him, and He in him. We know by this that He abides in us, by the Spirit whom He has given us._"
 
-### Sealed by the spirit
+**Sealed by the spirit**
 
-* **2 Corinthians 1:22**. who also sealed us and gave us the Spirit in our hearts as a pledge.
+* **2 Corinthians 1:22**. "_who also sealed us and gave us the Spirit in our hearts as a pledge._"
 
-* **Ephesians 4:30**. Do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption.
+* **Ephesians 4:30**. "_Do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption._"
 
-### Recipient of spiritual gifts
+**Recipient of spiritual gifts**
 
-* **1 Corinthians 12:11**. But one and the same Spirit works all these things, distributing to each one individually just as He wills.
+* **1 Corinthians 12:11**. "_But one and the same Spirit works all these things, distributing to each one individually just as He wills._"
 
-* **1 Corinthians 12:27-31**. Now you are Christ’s body, and individually members of it. And God has appointed in the church, first apostles, second prophets, third teachers, then miracles, then gifts of healings, helps, administrations, various kinds of tongues. All are not apostles, are they? All are not prophets, are they? All are not teachers, are they? All are not workers of miracles, are they? All do not have gifts of healings, do they? All do not speak with tongues, do they? All do not interpret, do they? But earnestly desire the greater gifts.
+* **1 Corinthians 12:27-31**. "_Now you are Christ’s body, and individually members of it. And God has appointed in the church, first apostles, second prophets, third teachers, then miracles, then gifts of healings, helps, administrations, various kinds of tongues. All are not apostles, are they? All are not prophets, are they? All are not teachers, are they? All are not workers of miracles, are they? All do not have gifts of healings, do they? All do not speak with tongues, do they? All do not interpret, do they? But earnestly desire the greater gifts._"
 
-* **1 Corinthians 13:1,2**. If I speak with the tongues of men and of angels, but do not have love, I have become a noisy gong or a clanging cymbal. If I have the gift of prophecy, and know all mysteries and all knowledge; and if I have all faith, so as to remove mountains, but do not have love, I am nothing.
+* **1 Corinthians 13:1,2**. "_If I speak with the tongues of men and of angels, but do not have love, I have become a noisy gong or a clanging cymbal. If I have the gift of prophecy, and know all mysteries and all knowledge; and if I have all faith, so as to remove mountains, but do not have love, I am nothing._"
 
-#### You have been **glorified in Christ**.
+**You have been _glorified in Christ_**.
 
-* **Romans 3:20**. because by the works of the Law no flesh will be justified in His sight; for through the Law comes the knowledge of sin.
+* **Romans 3:20**. "_because by the works of the Law no flesh will be justified in His sight; for through the Law comes the knowledge of sin._"
 
-#### You have been made **complete in Christ**.
+**You have been made _complete in Christ_**.
 
-* **Colossians 2:10**. and in Him you have been made complete, and He is the head over all rule and authority;
+* **Colossians 2:10**. "_and in Him you have been made complete, and He is the head over all rule and authority;_"
 
-#### You are the **possessor of every spiritual blessing**.
+**You are the _possessor of every spiritual blessing_**.
 
-* **Ephesians 1:3**. Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenly places in Christ,
+* **Ephesians 1:3**. "_Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenly places in Christ,_"
 
-#### You are the **recipient of a human spirit**.
+**You are the _recipient of a human spirit_**.
 
-* **Romans 8:16**. The Spirit Himself testifies with our spirit that we are children of God,
+* **Romans 8:16**. "_The Spirit Himself testifies with our spirit that we are children of God,_"
 
-* **1 Corinthians 2:12**. Now we have received, not the spirit of the world, but the Spirit who is from God, so that we may know the things freely given to us by God,
+* **1 Corinthians 2:12**. "_Now we have received, not the spirit of the world, but the Spirit who is from God, so that we may know the things freely given to us by God,_"
 
-* **2 Corinthians 7:13**. For this reason we have been comforted. And besides our comfort, we rejoiced even much more for the joy of Titus, because his spirit has been refreshed by you all.
+* **2 Corinthians 7:13**. "_For this reason we have been comforted. And besides our comfort, we rejoiced even much more for the joy of Titus, because his spirit has been refreshed by you all._"
 
-* **1 Thessalonians 5:23**. Now may the God of peace Himself sanctify you entirely; and may your spirit and soul and body be preserved complete, without blame at the coming of our Lord Jesus Christ.
+* **1 Thessalonians 5:23**. "_Now may the God of peace Himself sanctify you entirely; and may your spirit and soul and body be preserved complete, without blame at the coming of our Lord Jesus Christ._"
 
-* **Ephesians 2:5**. even when we were dead in our transgressions, made us alive together with Christ (by grace you have been saved),
+* **Ephesians 2:5**. "_even when we were dead in our transgressions, made us alive together with Christ (by grace you have been saved),_"
 
-#### You have **access to all Bible truth** through the grace system for Bible understanding and Christian growth
+**You have _access to all Bible truth_ through the grace system for Bible understanding and Christian growth**
 
 READ **Colossians 2** and **Ephesians 4**.
 
