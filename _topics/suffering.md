@@ -53,7 +53,7 @@ Many of our cares come from somebody’s trampling on our rights, or what we thi
 
 * Dignity
 
-*Consideration
+* Consideration
 
 * Equal treatment
 
@@ -71,9 +71,9 @@ One of the most useful practices in the Christian way of life is to “cast all 
 
 We suffer needlessly because we demand our rights. We have no rights. We have only our just deserts, “the wages of sin is death”, which, by the grace of God, have been taken care of by the work of Christ. We are aware that one of the best things we can teach children is to be thankful for what they have, and to stop fretting about what they don’t have. Children complain about things not being fair or not being divided equally, but when these traits show up in adults, it is a sign that more growth in grace is needed.
 
-Phil. 2:1-8
+**Phil. 2:1-8**
 
-Col. 3:12-17
+**Col. 3:12-17**
 
 These passages indicate that the more relaxed a person is with regard to the details of life, the less he will experience the ill effects of some types of suffering. Often the amount of suffering can be limited through having a relxed mental attitude toward a person or situation. Even severe privation or emotional trauma caused by the sin or hatred of another person can be reduced remarkably by the use of principles of Faith Rest, forgiveness, by relying on the Father for all provision, by allowing God to protect your reputation, etc.
 
@@ -95,15 +95,15 @@ Christians suffer for many reasons, sometimes through no fault of their own. A C
 
 To the backslidden Christian who is out of fellowship and already quite miserable, however, suffering never brings blessing, and everything he touches turns to misery. Even the details of life don’t make him happy; and he wastes his years in empty living.
 
-Eccl. 2:1-12
+**Eccl. 2:1-**
 
 A lot of a Christian’s suffering can be avoided, however, and God has provided many remedies for reducing the distress a person causes himself.
 
 You can avoid suffering caused by divine discipline.
 
-Heb. 12:1-15
+**Heb. 12:1-15**
 
-Psalm 38
+**Psalm 38**
 
 Chastisement is avoided by staying in fellowship, confessing sin, forsaking sin, laying aside every weight…that is, choosing to obey God.
 
@@ -115,7 +115,7 @@ You can avoid suffering which comes from maintaining a lifestyle like the unsave
 
 You can avoid suffering due to the rejection of authority, such as parental authority, school authority, civil authority, military authority, etc.
 
-READ Judges 19 and 10, Matt. 7:29 to 8:13, Jer. 7, and Prov. 30
+READ **Judges 19 and 10, Matt. 7:29 to 8:13, Jer. 7, and Prov. 30**
 
 You can avoid suffering caused by making decisions outside of the plan of God.
 
@@ -131,7 +131,7 @@ You can avoid suffering caused by making decisions outside of the plan of God.
 
 You can avoid suffering from failure to have your armor on.
 
-Eph. 6.
+**Eph. 6.**
 
 **The Believer’s Undeserved Suffering is Intended for Blessing**
 
@@ -145,7 +145,7 @@ The following is a list of reasons why believers in fellowship suffer undeserved
 
 2. Suffering from spiritual growing pains; the testing that strengthens faith: **Deut. 8:1–10; James 1:1–6; 1 Pet. 1:7,8; Rom. 5:3**
 
-Faster growth means more frequent testing; there is a refining process: **Job. 23:10; Isa. 1:18–27; 1 Pet. 1:7**
+     Faster growth means more frequent testing; there is a refining process: **Job. 23:10; Isa. 1:18–27; 1 Pet. 1:7**
 
 2. Suffering to keep down pride: **2 Cor. 12:6,7; Matt. 26:31–75** (the scattering of the disciples)
 
