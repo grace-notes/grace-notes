@@ -1,5 +1,6 @@
 ---
 title: Suffering
+description: A discussion of the suffering experienced by believers and unbelievers; deserved and undeserved suffering; how to avoid some forms of suffering; suffering for blessing.
 layout: lesson
 ---
 
