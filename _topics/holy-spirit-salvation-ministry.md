@@ -18,7 +18,7 @@ When we hear the gospel we are spiritually dead. When we believe in Jesus Christ
 
 But God the Holy Spirit in His matchless grace comes to our rescue. First, He makes the gospel clear to us. This is common grace. Then He makes our faith in Christ effectual, giving our faith life, as it were. This is efficacious grace.
 
-In John 10:27-28, Jesus said, “I give unto you eternal life, and you shall never perish, neither shall anyone pluck you out of My hand.” It is the ministry of the Holy Spirit to make our faith effective so that we can be given eternal life.
+In John 10:27-28, Jesus said, “_I give unto you eternal life, and you shall never perish, neither shall anyone pluck you out of My hand._” It is the ministry of the Holy Spirit to make our faith effective so that we can be given eternal life.
 
 Therefore, the ministry of the Holy Spirit in common grace may be regarded as the inhale of the gospel. The ministry of the Holy Spirit in efficacious grace may be regarded as the exhale of faith in Jesus Christ.
 
