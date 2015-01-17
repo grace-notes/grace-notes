@@ -60,7 +60,7 @@ Efficacious grace is a part of the sealing ministry of the Holy Spirit, Ephesian
 
 The second ministry of the Holy Spirit at salvation is called regeneration. It is taught in Tit. 3:5; 1 Pet. 1:23.
 
-Regeneration is the technical term for being born again, because that is the way it is described in John 3:1-18, in our Lord’s discussion with Nicodemus. John 3: 6-7, “      -That which is born of flesh is flesh; and that which is born of the Spirit is spirit. Marvel not that I say to you: you must be born again. -”
+Regeneration is the technical term for being born again, because that is the way it is described in John 3:1-18, in our Lord’s discussion with Nicodemus. John 3: 6-7, “_-That which is born of flesh is flesh; and that which is born of the Spirit is spirit. Marvel not that I say to you: you must be born again. -_”
 
 Being born again is a result of faith in Jesus Christ and occurs at the instant you personally believe in Jesus Christ.
 
