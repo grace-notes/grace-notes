@@ -22,7 +22,7 @@ In John 10:27-28, Jesus said, “_I give unto you eternal life, and you shall ne
 
 Therefore, the ministry of the Holy Spirit in common grace may be regarded as the inhale of the gospel. The ministry of the Holy Spirit in efficacious grace may be regarded as the exhale of faith in Jesus Christ.
 
-When the spiritually dead person believes in Jesus Christ, the Holy Spirit takes that faith and makes it effective for salvation.
+*When the spiritually dead person believes in Jesus Christ, the Holy Spirit takes that faith and makes it effective for salvation.*
 
 The origin of our faith is from a spiritually dead person, and therefore it has no ability in itself. Spiritual death means total inability to do anything by which we can enter into an eternal relationship with God.
 
