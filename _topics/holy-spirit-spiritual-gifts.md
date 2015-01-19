@@ -117,7 +117,7 @@ When Studying Spiritual Gifts, it is important to remember the principles of Spi
 
 2. In order to discover our gifts, we first must know what gifts are given by God and how to recognize them.
 
-2. We have three main passages in the New Testament that outline and list the different gifts. Rom 12:3-8 1 Peter 4:10-11, and 1 Cor. 12:8-10;28-30; 14:6,26
+2. We have three main passages in the New Testament that outline and list the different gifts. Rom 12:3-8, 1 Peter 4:10-11, and 1 Cor. 12:8-10;28-30; 14:6,26
 
 *_Christians are the Hands of God_*
 
