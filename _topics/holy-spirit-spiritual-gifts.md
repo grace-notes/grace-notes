@@ -1,5 +1,6 @@
 ---
 title: Holy Spirit Spiritual Gifts
+description: the divine power which is given to each Christian at the time of salvation.
 layout: lesson
 ---
 
