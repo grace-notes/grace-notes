@@ -80,7 +80,7 @@ The Essenes are not mentioned directly in the Bible. However, it is thought that
 The Essenes were an extremely ascetic group of men in Palestine and Syria, and they are thought to have formed the first cells of organized monasticism in the Mediterranean world, setting the pattern for the various holy orders which proliferated during and after the time of Christ. It is still not clear whether the Essenes proceeded from some sect of Judaism or whether elements of Greek and other foreign philosophies had an influence in their origin. Their main colonies were near the northern end of the Dead Sea and around the town of Engedi. The study of the Dead Sea Scrolls has produced a considerable body of
 knowledge of the early Christian sects; and the Essenes may have been the group which produced the scrolls. The bibliography of this article provides references for further study.
 
-*_Essene Organization*_
+*_Essene Organization_*
 
 The community of the Essenes was organized as a single body, with a president at the head. The members had to obey the president unconditionally. A man who wanted to join the order was given three articles: a pickax, an apron, and a white garment. After a year’s probation, during which he was observed continuously, he was admitted to the second stage of his probation period. Another two years passed, after which the successful candidate was admitted as a full member and allowed to participate in the common meals. He was required to take a terrible oath, in which he swore to be absolutely open to the brethren and to keep secret the doctrines of the order, under pain of excommunication.
 
