@@ -28,7 +28,7 @@ The ancient oriental philosophy, or religion, of Gnosticism was concerned mainly
 
 2.  Second, How are we to account for the existence of evil in the     universe.
 
-So, the problem posed was, “How can one reconcile the creation of the world and the existence of evil with the conception of God as a being who is absolutely holy?
+So, the problem posed was, “How can one reconcile the creation of the world and the existence of evil with the conception of God as a being who is absolutely holy?"
 
 The Gnostic argued as follows
 
