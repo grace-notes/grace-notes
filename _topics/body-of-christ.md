@@ -15,7 +15,7 @@ God the Father placed Christ as the head of the body.
 
 The Holy Spirit forms the body of Christ and sustains the body.
 
-1 Cor. 12:12-14, “_For as the body in one, and has many members, and all the members of that one body, being many, are one body, so also is Christ. For by one Spirit were we all baptized into one body, whether we be Jews or Greeks, whether we be bond or free, and have been all made to drink into one Spirit. For the body is not one member, but many._”
+**1 Cor. 12:12-14**, “_For as the body in one, and has many members, and all the members of that one body, being many, are one body, so also is Christ. For by one Spirit were we all baptized into one body, whether we be Jews or Greeks, whether we be bond or free, and have been all made to drink into one Spirit. For the body is not one member, but many._”
 
 **1 Cor. 6:15; 19,20** support this statement.
 
