@@ -23,7 +23,7 @@ Christ is the Savior of the body.
 
 **Eph. 5:23**, “_For the husband is the head of the wife, even as Christ  the head of the church; and He is the savior of the body._”
 
-Please read **Eph. 5:25, 30.
+Please read **Eph. 5:25, 30**.
 
 Christ is the sanctifier of the body.
 
