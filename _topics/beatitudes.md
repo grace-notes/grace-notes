@@ -27,15 +27,15 @@ Now let us turn to mourning. Mourning due to the loss of fellowship is a fairly 
 
 Psalm 30:1-6
 
-* _“I will extol You, O Lord, for You have lifted me up, and have not let my enemies rejoice over me._”
+> “I will extol You, O Lord, for You have lifted me up, and have not let my enemies rejoice over me.”
 
-* “_O Lord my god, I cried to You for help, and You healed me._”
+> “O Lord my god, I cried to You for help, and You healed me.”
 
-* “_O Lord, You have brought up my soul from Sheol; You have kept me alive, that I should not go down to the pit._”
+> “O Lord, You have brought up my soul from Sheol; You have kept me alive, that I should not go down to the pit.”
 
-* “_Sing praise to the Lord, you His godly ones, and give thanks to His holy name._”
+> “Sing praise to the Lord, you His godly ones, and give thanks to His holy name.”
 
-* “_For His anger is but for a moment, His favor is for a lifetime; weeping may last for the night, but a shout of joy comes in the morning._”
+> “For His anger is but for a moment, His favor is for a lifetime; weeping may last for the night, but a shout of joy comes in the morning.”
 
 Psalm 30:10-12
 
