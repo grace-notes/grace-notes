@@ -1,6 +1,5 @@
 ---
 title: Babylon
-display_title: Babylon
 layout: lesson
 description: Babylon lay on the bank of the Euphrates in the land of Shinar (Gen. 10:10), in the northern area of Babylonia (now southern Iraq) called Accad (as opposed to the southern area called Sumer). [MAR 2013]
 ---
@@ -10,116 +9,40 @@ From International Standard Bible Encyclopedia
 
 **Babylon** baʹbə-lon; **BABEL** bāʹbəl (Gen. 10:10; 11:9) [Heb _bābel_—‘gate of god’; Akk _bāb–ili_, _bāb-ilāni_—‘gate of god(s)’; Gk _Babylōn_; Pers *Babirush*]. The capital city of Babylonia.
 
-##I. Location
+**I. Location**
 
 Babylon lay on the bank of the Euphrates in the land of Shinar (Gen. 10:10), in the northern area of Babylonia (now southern Iraq) called Accad (as opposed to the southern area called Sumer). Its ruins, covering 2100 acres (890 hectares), lie about 50 mi (80 km) S of Baghdad and 5 mi 8 (km) N of Hillah. The ancient site is now marked by the mounds of Bâbil to the north, *Qaṣr* (“the Citadel”) in the center, and Merkes, *‘Amran Ibn ‘Alī Ṣaḥn*, and Homera to the south. The high water and long flooding of the whole area render the earlier and lower ruins
 inaccessible.
 
-##II. Name
+**II. Name**
 
 The oldest attested extrabiblical name is the Sumerian ká-dingir-ki (usually written ká-dingir-ra, “gate of god”). This may have been atranslation of the more commonly used later Babylonian *Bāb-ilī*, of which an etymology based on Heb *bālal*, “confused,” is given in Gen 11:9. Throughout the OT and NT, Babylon stands theologically for the community that is anti-God. Rarely from 2100 b.c. and frequently in the 7th cent Babylon is called TIN.TIR.KI, “wood (trees) of life,” and from the latter period also. E.KI, “canal zone (?).” Other names applied to at least part of the city were *ŠU.AN.NA*, “hand of heaven” or “high-walled (?),” and the Heb *šēšaḵ* (Jer. 25:26; 51:41), which is usually interpreted as a coded form (Athbash) by which *š* = *b*, etc. The proposed equation with *ŠEŠ.KU* in a late king list has been
 questioned, since this could be read equally well as (É).URU.KU.
 
-##III. Early History
+**III. Early History**
 
-*__A. Foundation__* Genesis ascribes the foundation of the city to Nimrod
-prior to his building of Erech (ancient Uruk, modern Warka) and Accad
-(Agade), which can be dated to the 4th and 3rd millennia b.c.
-respectively. The earliest written reference extant is by
-*Šar-kali-šarri* of Agade ca 2250 b.c., who claimed to have (re)built
-the temple of *Anunītum* and carried out other restorations, thus
-indicating an earlier foundation. A later omen text states that Sargon
-(*Šarrukīn I*) of Agade (ca 2300) had plundered the city.
+*__A. Foundation__* Genesis ascribes the foundation of the city to Nimrod prior to his building of Erech (ancient Uruk, modern Warka) and Accad (Agade), which can be dated to the 4th and 3rd millennia b.c. respectively. The earliest written reference extant is by *Šar-kali-šarri* of Agade ca 2250 b.c., who claimed to have (re)built the temple of *Anunītum* and carried out other restorations, thus indicating an earlier foundation. A later omen text states that Sargon (*Šarrukīn I*) of Agade (ca 2300) had plundered the city.
 
-*__B. Old Babylonian Period__* *Šulgi* of Ur captured Babylon and placed
-there his governor (*ensi*), Itur-ilu, a practice followed by his
-successors in the Ur III Dynasty (ca [5 highlights]2150–2050 [5
-highlights]b.c.). Thereafter invading Semites, the Amorites of the 1st
-Dynasty of Babylon, took over the city. Their first ruler Sumu-abum
-restored the city wall. Though few remains of this time survive the
-inundation of the river, Hammurabi in the Prologue to his laws (ca 1750)
-recalls how he had maintained Esagila (the temple of Marduk), which by
-the time of his reign was the center of a powerful regime with wide
-influence. Samsu-iluna enlarged the city, but already in his reign the
-Kassites were pressing in from the northeast hills. It actually fell in
-1595 to Hittite raiders under Mursilis I, who removed the statue of
-Marduk and his consort *Ṣarpānītum* to *Ḫana*. (Possession of a city’s
-gods [their statues] symbolized control.) The city changed hands
-frequently under the Kassites (*Meli-Šipak* [*Meli-Šiḫu*] and
-Marduk-aplaiddina I) amid the rivalry of the local tribes. Agumkakrime
-recovered the captive statues, but that of Marduk was again removed at
-the sack of the city by Tukulti-Ninurta I of Assyria (1250) and by the
-*Elamite Kudur-Naḫḫunte* II (1176).
+*__B. Old Babylonian Period__* *Šulgi* of Ur captured Babylon and placed there his governor (*ensi*), Itur-ilu, a practice followed by his successors in the Ur III Dynasty (ca [5 highlights]2150–2050 [5 highlights]b.c.). Thereafter invading Semites, the Amorites of the 1st Dynasty of Babylon, took over the city. Their first ruler Sumu-abum restored the city wall. Though few remains of this time survive the inundation of the river, Hammurabi in the Prologue to his laws (ca 1750)
+recalls how he had maintained Esagila (the temple of Marduk), which by the time of his reign was the center of a powerful regime with wide influence. Samsu-iluna enlarged the city, but already in his reign the Kassites were pressing in from the northeast hills. It actually fell in 1595 to Hittite raiders under Mursilis I, who removed the statue of Marduk and his consort *Ṣarpānītum* to *Ḫana*. (Possession of a city’s gods [their statues] symbolized control.) The city changed hands
+frequently under the Kassites (*Meli-Šipak* [*Meli-Šiḫu*] and Marduk-aplaiddina I) amid the rivalry of the local tribes. Agumkakrime recovered the captive statues, but that of Marduk was again removed at the sack of the city by Tukulti-Ninurta I of Assyria (1250) and by the *Elamite Kudur-Naḫḫunte* II (1176).
 
-*__C. Middle Babylonian Period__* The recovery of Marduk’s statue was the
-crowning achievement of Nebuchadrezzar I (1124–1103), marking an end to
-foreign domination of the city. He restored it to Esagila amid much
-public rejoicing and refurbished the cult places. Although Babylon
-retained its independence despite the pressure of the western tribes,
-this required help from the Assyrians, one of whom, Adad-apal-iddina,
-was given the throne (1067–1046). By the following century, however, the
-tribesmen held the suburbs and even prevented the celebration of the New
-Year Festival by *Nabû-mukīn-apli* of the 8th Babylonian Dynasty.
+*__C. Middle Babylonian Period__* The recovery of Marduk’s statue was the crowning achievement of Nebuchadrezzar I (1124–1103), marking an end to foreign domination of the city. He restored it to Esagila amid much public rejoicing and refurbished the cult places. Although Babylon retained its independence despite the pressure of the western tribes, this required help from the Assyrians, one of whom, Adad-apal-iddina, was given the throne (1067–1046). By the following century, however, the tribesmen held the suburbs and even prevented the celebration of the New Year Festival by *Nabû-mukīn-apli* of the 8th Babylonian Dynasty.
 
-*__D. Neo-Assyrian Supremacy__* Shalmaneser III of Assyria was called to
-intervene in the strife that broke out on the death of Nabû-apla-iddina
-in 852 b.c. He defeated the rebels, entered Babylon, treated the
-inhabitants with respect, and offered sacrifices in Marduk’s temple.
-This action inaugurated a new period of Assyrian intervention in the
-southern capital, with the result, according to Herodotus, that
-Sammu-ramat (Semiramis), mother of Adadnirari III, carried out
-restoration work there.
+*__D. Neo-Assyrian Supremacy__* Shalmaneser III of Assyria was called to intervene in the strife that broke out on the death of Nabû-apla-iddina in 852 b.c. He defeated the rebels, entered Babylon, treated the inhabitants with respect, and offered sacrifices in Marduk’s temple. This action inaugurated a new period of Assyrian intervention in the southern capital, with the result, according to Herodotus, that Sammu-ramat (Semiramis), mother of Adadnirari III, carried out restoration work there.
 
-The citizens’ independent spirit was never long suppressed; and Arameans
-from the southern tribes seized the city, made *Erība-Marduk* their
-leader, and refused to pay allegiance to the northern kingdom. To remedy
-this Tiglath-pileser III began a series of campaigns to recover control.
-First he won over the tribe of *Puqūdu* (Pekod of Jer. 50:21; Ezk.
-23:23), who lived to the northeast, leaving Nabonassar (*Nabû-nāṣir*) as
-governor of Babylon to pursue a pro-Assyrian policy until his death in
-734 [5 highlights]b.c., whereupon *Ukīn-zēr* of the Amukkani tribe
-seized the city.
+The citizens’ independent spirit was never long suppressed; and Arameans from the southern tribes seized the city, made *Erība-Marduk* their leader, and refused to pay allegiance to the northern kingdom. To remedy this Tiglath-pileser III began a series of campaigns to recover control. First he won over the tribe of *Puqūdu* (Pekod of Jer. 50:21; Ezk. 23:23), who lived to the northeast, leaving Nabonassar (*Nabû-nāṣir*) as governor of Babylon to pursue a pro-Assyrian policy until his death in 734 [5 highlights]b.c., whereupon *Ukīn-zēr* of the Amukkani tribe seized the city.
 
-The Assyrians then tried to gain the support of the other tribal chiefs,
-including Marduk-apla-iddina (Merodach-baladan of the OT) of
-*Bīt-Yakin*, who, however, took over the city on the death of
-Tiglath-pileser’s successor Shalmaneser V in 721. He proclaimed the
-city’s independence and maintained it for ten years. Either toward the
-end of this period or more probably in 703 b.c., when he again held
-Babylon, Merodach-baladan sought Hezekiah’s help against the Assyrians
-(2 K. 20:12–17). Sargon II recaptured the city in 710 and celebrated the
-New Year festival by taking the hands of Marduk/*Bēl* and the title
-“viceroy of Marduk.”
+The Assyrians then tried to gain the support of the other tribal chiefs, including Marduk-apla-iddina (Merodach-baladan of the OT) of *Bīt-Yakin*, who, however, took over the city on the death of Tiglath-pileser’s successor Shalmaneser V in 721. He proclaimed the city’s independence and maintained it for ten years. Either toward the end of this period or more probably in 703 b.c., when he again held Babylon, Merodach-baladan sought Hezekiah’s help against the Assyrians (2 K. 20:12–17). Sargon II recaptured the city in 710 and celebrated the New Year festival by taking the hands of Marduk/*Bēl* and the title “viceroy of Marduk.”
 
-To revenge Merodach-baladan’s later seizure of the capital, Sennacherib
-marched south to remove the traitor *Bēl-ibni* and set his own son
-*Aššur-nadin-šumi* on the throne. The latter was soon ousted, however,
-by local revolutionaries, who in turn were defeated by Sennacherib in
-689 when he besieged the city for nine months, sacked Babylon, and
-removed the statue of Marduk and some of the sacred soil to Nineveh.
-Though this act brought peace, it broke any trust the citizens ever had
-in the Assyrians, despite Esarhaddon’s efforts to restore the decrepit
-town. Esarhaddon claimed to have revoked his father’s decree imposing
-“seventy years of desolation upon the city” by reversing the Babylonian
-numerals for 70 to make them 11. Many refugees returned, and the city
-again became a prosperous center under his son *Šamaš-šum-ukīn*
-(669–648). He was isolated, however, by the surrounding tribes, who
-eventually won him over to their cause. His twin brother Ashurbanipal of
-Assyria laid siege to the city, which fell after four years of great
-hardship. *Šamaš-šum-ukīn* died in the fire that destroyed his palace
+To revenge Merodach-baladan’s later seizure of the capital, Sennacherib marched south to remove the traitor *Bēl-ibni* and set his own son *Aššur-nadin-šumi* on the throne. The latter was soon ousted, however, by local revolutionaries, who in turn were defeated by Sennacherib in 689 when he besieged the city for nine months, sacked Babylon, and removed the statue of Marduk and some of the sacred soil to Nineveh. Though this act brought peace, it broke any trust the citizens ever had in the Assyrians, despite Esarhaddon’s efforts to restore the decrepit town. Esarhaddon claimed to have revoked his father’s decree imposing “seventy years of desolation upon the city” by reversing the Babylonian numerals for 70 to make them 11. Many refugees returned, and the city again became a prosperous center under his son *Šamaš-šum-ukīn* (669–648). He was isolated, however, by the surrounding tribes, who eventually won him over to their cause. His twin brother Ashurbanipal of Assyria laid siege to the city, which fell after four years of great hardship. *Šamaš-šum-ukīn* died in the fire that destroyed his palace
 and the citadel.
 
-*__E. Chaldean Rulers__* Reconstruction work began under the Chaldean Nabopolassar (*Nabû-apla-uṣur*, 626–605 [5 highlights]b.c.), who was elected king following a popular revolt after the death of the Assyrian nominee Kandalanu. His energetic son Nebuchadrezzar (II) with his queen Nitocris restored not only the political prestige of Babylonia, which
-for a time dominated the whole of the former Assyrian empire, but also the capital city, to which he brought the spoils of war including the treasures of Jerusalem and Judah (2 K 25:13–17). Texts dated to this reign list Jehoiachin king of Judah (*Ya’ukin māt Yaḫudu*), his five sons, and Judean craftsmen among recipients of corn and oil from the king’s stores. It is to the city of this period, one of the glories of the ancient world, that the extant texts and archeological remains bear witness. Nabonidus (555–539 [5 highlights]b.c.) continued to care for the temples of the city, though he spent ten years in Arabia, leaving control of local affairs in the hands of his son and co-regent Belshazzar, who died when the city fell to the Persians in 539 (Dnl 5:30).
+*__E. Chaldean Rulers__* Reconstruction work began under the Chaldean Nabopolassar (*Nabû-apla-uṣur*, 626–605 [5 highlights] b.c.), who was elected king following a popular revolt after the death of the Assyrian nominee Kandalanu. His energetic son Nebuchadrezzar (II) with his queen Nitocris restored not only the political prestige of Babylonia, which for a time dominated the whole of the former Assyrian empire, but also the capital city, to which he brought the spoils of war including the treasures of Jerusalem and Judah (2 K 25:13–17). Texts dated to this reign list Jehoiachin king of Judah (*Ya’ukin māt Yaḫudu*), his five sons, and Judean craftsmen among recipients of corn and oil from the king’s stores. It is to the city of this period, one of the glories of the ancient world, that the extant texts and archeological remains bear witness. Nabonidus (555–539 [5 highlights]b.c.) continued to care for the temples of the city, though he spent ten years in Arabia, leaving control of local affairs in the hands of his son and co-regent Belshazzar, who died when the city fell to the Persians in 539 (Dnl 5:30).
 
-##IV. Description
+**IV. Description**
 
-*__A. Walls__* Babylon lay in a plain, encircled by double walls. The
-inner rampart (*dūru*), called “Imgur-Enlil,” was constructed of mud
-brick 6.50 m (21 ft) thick. It had large towers at intervals of 18 m (60
-ft) jutting out about 3.5 and.75 m (11.5 and 2.5 ft) and rising to 10–18
-m (30–60 ft). It has been estimated that there were at least a hundred
-of these. The line may well have followed that laid down by Sumu-abum of
+*__A. Walls__* Babylon lay in a plain, encircled by double walls. The inner rampart (*dūru*), called “Imgur-Enlil,” was constructed of mud brick 6.50 m (21 ft) thick. It had large towers at intervals of 18 m (60 ft) jutting out about 3.5 and.75 m (11.5 and 2.5 ft) and rising to 10–18 m (30–60 ft). It has been estimated that there were at least a hundred of these. The line may well have followed that laid down by Sumu-abum of
 the 1st Dynasty. Over 7 m (23 ft) away lay the lower and double outer
 wall (*šalḫu*) called Nimit-Enlil, 3.7 m (12 ft) thick, giving a total
 defense depth of 17.4 m (57 ft). Twenty m (65 ft) outside these walls
