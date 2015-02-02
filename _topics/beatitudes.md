@@ -39,47 +39,47 @@ Psalm 30:1-6
 
 Psalm 30:10-12
 
-* “_Hear, O Lord, and be gracious to me; O lord, be my helper._”
+> “Hear, O Lord, and be gracious to me; O lord, be my helper.”
 
-* “_You have turned for me my mourning into dancing; You have loosed my sackcloth and girded me with gladness._”
+> “You have turned for me my mourning into dancing; You have loosed my sackcloth and girded me with gladness.”
 
-* “_That my soul may sing praise to You, and not be silent.  O Lord my God, I will give thanks to You forever._”
+> “That my soul may sing praise to You, and not be silent.  O Lord my God, I will give thanks to You forever.”
 
 Psalm 38:1-8
 
-* “_O Lord rebuke me not in Your wrath; and chasten me not in Your burning anger._”
+> “O Lord rebuke me not in Your wrath; and chasten me not in Your burning anger.”
 
-* “_For Your arrows have sunk deep into me, and Your hand has pressed down on me._”
+> “For Your arrows have sunk deep into me, and Your hand has pressed down on me.”
 
-* “_There is no soundness in my flesh because of Your indignation; there is no health in my bones because of my sin._”
+> “There is no soundness in my flesh because of Your indignation; there is no health in my bones because of my sin.”
 
-* “_For my iniquities are gone over my head; as a heavy burden the weigh too much for me._”
+> “For my iniquities are gone over my head; as a heavy burden the weigh too much for me.”
 
-* “_My wounds grow foul and fester because of my folly._”
+> “My wounds grow foul and fester because of my folly.”
 
-* “_I am bent over and greatly bowed down; I go mourning all day long._”
+> “I am bent over and greatly bowed down; I go mourning all day long.”
 
-* “_For my loins are filled with burning; and there is no soundness in my flesh._”
+> “For my loins are filled with burning; and there is no soundness in my flesh.”
 
-* “_I am benumbed and badly crushed; I groan because of the agitation of my heart._"
+> “I am benumbed and badly crushed; I groan because of the agitation of my heart."
 
 Isaiah 61:1-3 connects mourning and the atonement,
 
-* “_The Spirit of the Lord God is upon me, because the Lord has anointed me to bring good news to the afflicted; He has sent me to bind up the brokenhearted, to proclaim liberty to captives, and freedom to prisoners;_”
+> “The Spirit of the Lord God is upon me, because the Lord has anointed me to bring good news to the afflicted; He has sent me to bind up the brokenhearted, to proclaim liberty to captives, and freedom to prisoners;”
 
-* “_to proclaim the favorable year of the Lord, and the day of vengeance of our God; to comfort all who mourn,_”
+> “to proclaim the favorable year of the Lord, and the day of vengeance of our God; to comfort all who mourn,”
 
-* “_to grant those who mourn in Zion, giving them a garland instead of ashes, the oil of gladness instead of mourning, the mantle of praise instead of a spirit of fainting.  So they will be called oaks of righteousness, the planting of the lord, that He may be glorified._"
+> “to grant those who mourn in Zion, giving them a garland instead of ashes, the oil of gladness instead of mourning, the mantle of praise instead of a spirit of fainting.  So they will be called oaks of righteousness, the planting of the lord, that He may be glorified."
 
 2 Corinthians 7:9-13 makes a very direct connection between sin and grief.  This passage seems almost as if Paul intended to clarify our beatitude. 
 
-* “I now rejoice, not that you were made sorrowful, but that you were made sorrowful to the point of repentance; for you were made sorrowful according to the will God, in order that you might not suffer loss in anything through us.”
+> “I now rejoice, not that you were made sorrowful, but that you were made sorrowful to the point of repentance; for you were made sorrowful according to the will God, in order that you might not suffer loss in anything through us.”
 
-* “_For the sorrow that is according to the will of God produces a repentance without regret, leading to salvation; but the sorrow of the world produces death._”
+> “For the sorrow that is according to the will of God produces a repentance without regret, leading to salvation; but the sorrow of the world produces death.”
 
-* “_For behold what earnestness this very thing, this godly sorrow, has produced in you:  what vindication of yourselves, what indignation, what fear, what longing, what zeal, what avenging of wrong! In everything you demonstrated yourselves to be innocent in the matter._”
+> “For behold what earnestness this very thing, this godly sorrow, has produced in you:  what vindication of yourselves, what indignation, what fear, what longing, what zeal, what avenging of wrong! In everything you demonstrated yourselves to be innocent in the matter.”
 
-* “_So although I wrote to you it was not for the sake of the offender, nor for the sake of the one offended, but that your earnestness on our behalf might be made known to you in the sight of God.  For this reason we have been comforted._"
+> “So although I wrote to you it was not for the sake of the offender, nor for the sake of the one offended, but that your earnestness on our behalf might be made known to you in the sight of God.  For this reason we have been comforted."
 
 Conclusion:
 
@@ -111,7 +111,7 @@ Therefore, mourning is a blessing from God, for it brings comfort in the restora
 
 There is woe to those who laugh, because if they laugh at divine discipline and while they are out of fellowship they will have little motive to confess.
 
-* Hebrews 12:5, “_and you have forgotten the exhortation which is addressed to you as sons, ‘My son, do not regard lightly the discipline of the Lord, nor faint when you are reproved by Him;’_”
+> Hebrews 12:5, “and you have forgotten the exhortation which is addressed to you as sons, ‘My son, do not regard lightly the discipline of the Lord, nor faint when you are reproved by Him;’”
 
 Mourning and feelings of guilt after the restoration of fellowship are illegitimate and should be all left behind.
 
@@ -145,13 +145,13 @@ There are two types of righteousness related to Jesus Christ.
 
 The first is the righteousness which He produced on the cross and which is imputed to us at the moment that we believe in Him.
 
-* Romans 5:18, “_So then as through one transgression there resulted condemnation to all men, even so through one act of righteousness there resulted justification of life to all men._”
+> Romans 5:18, “So then as through one transgression there resulted condemnation to all men, even so through one act of righteousness there resulted justification of life to all men.”
 
 The second righteousness is that which comes through the study of the word of God.
 
-* 2 Timothy 3:16, “_All Scripture is inspired by God and profitable for teaching, for reproof, for correction, for training in righteousness._”
+> 2 Timothy 3:16, “All Scripture is inspired by God and profitable for teaching, for reproof, for correction, for training in righteousness.”
 
-* 1 Corinthians 2:16, “_For who has known the mind of the Lord, that he should instruct Him? But we have the mind of Christ._”
+> 1 Corinthians 2:16, “For who has known the mind of the Lord, that he should instruct Him? But we have the mind of Christ.”
 
 This beatitude concentrates on the second righteousness. This is a righteousness which can only come through faith perception.
 
@@ -191,11 +191,11 @@ All of the actions of God are done without conditions.
 
 Unlimited atonement is an expression of divine mercy,
 
-* 1 John 2:2, “_He is the atoning sacrifice for our sins, and not only for ours but also for the sins of the whole world._”
+> 1 John 2:2, “He is the atoning sacrifice for our sins, and not only for ours but also for the sins of the whole world._”
 
 Eternal security is an expression of divine mercy,
 
-* 1 John 3:1a, “_How great is the love the Father has lavished on us, that we should be called children of God! And that is what we are!_”
+> 1 John 3:1a, “How great is the love the Father has lavished on us, that we should be called children of God! And that is what we are!”
 
 The life and death of Jesus Christ are the ultimate testimony of the love of God.
 
@@ -216,7 +216,7 @@ Putting the word in your heart causes personal purity related to spiritual matur
 
 Purity of heart is a requirement for prayer,
 
-* 2 Tim 2:22, “_Now flee from youthful lusts, and pursue righteousness, faith, love, and peace, with those who call on the Lord from a pure heart._”
+> 2 Tim 2:22, “Now flee from youthful lusts, and pursue righteousness, faith, love, and peace, with those who call on the Lord from a pure heart.”
 
 Summary of Biblical References to Maturity
 
@@ -246,7 +246,7 @@ The interpretation of the term is somewhat more difficult. We will begin with th
 
 This is the only place in the Bible where this noun occurs. Its corresponding verb appears in Colossians 1:19-20.
 
-* “_For it was the Father’s good pleasure for all the fullness to dwell in Him, and through Him to reconcile all things to Himself, having made peace through the blood of His cross; through Him, I say, whether things on earth or things in heaven._”
+> “For it was the Father’s good pleasure for all the fullness to dwell in Him, and through Him to reconcile all things to Himself, having made peace through the blood of His cross; through Him, I say, whether things on earth or things in heaven.”
 
 Christ is the peacemaker through the blood of His cross. Therefore, Paul connects the word to the doctrine of reconciliation.
 
