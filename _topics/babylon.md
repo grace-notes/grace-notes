@@ -88,272 +88,59 @@ Opposite the main gate lay the stepped tower on a platform with shrines grouped 
 
 Ruins of Nebuchadrezzar’s “Summer Palace,” just inside the outer fortification line on the bank of the Euphrates (W. S. LaSor)
 
-Herodotus (i.181–183) described Etemenanki, which he called the
-“sanctuary” of Zeus Belos. It was, he wrote, 2 stadia (400 m or 1300 ft)
-sq and was entered through a bronze gate. The temple tower stood in the
-center of the sanctuary, its sides 1 stadium (200 m, 650 ft) long, with
-eight towers, one on top of the other. It also had slopes or steps
-rising on each level. (*See* Babel, Tower Of.) In the large topmost
-temple was a couch covered in beautiful rugs with a golden table. There
-was no image of the deity, and the Chaldean priests informed Herodotus
-that one unmarried native woman spent the night there to be visited by
-the deity. Though Herodotus did not believe the story, it conforms to
-the known Babylonian view of the sacred marriage.
+Herodotus (i.181–183) described Etemenanki, which he called the “sanctuary” of Zeus Belos. It was, he wrote, 2 stadia  sq and was entered through a bronze gate. The temple tower stood in the center of the sanctuary, its sides 1 stadium (200 m, 650 ft) long, with eight towers, one on top of the other. It also had slopes or steps rising on each level. (*See* Babel, Tower Of.) In the large topmost temple was a couch covered in beautiful rugs with a golden table. There was no image of the deity, and the Chaldean priests informed Herodotus that one unmarried native woman spent the night there to be visited by the deity. Though Herodotus did not believe the story, it conforms to the known Babylonian view of the sacred marriage.
 
-*__H. Esagila__* The principal temple of Babylon, Esagila (“house of the
-uplifted head”), was dedicated to the patron deity of the city Marduk.
-It lay S of Etemenanki, which must have overshadowed it. The excavations
-by Koldewey in the *‘Amrān Ibn ‘Alī* mound disclosed sufficient evidence
-to recover the ground plan of two building complexes. The main shrine to
-the west (10 by 79 m, 33 by 260 ft) was entered by four doors, one on
-each side. At a lower level than the principal shrine, that of Marduk,
-were chapels and niches for lesser deities around the central courtyard.
-Nabopolassar claimed to have redecorated the Marduk shrine with gypsum
-and silver alloy, which Nebuchadrezzar replaced with fine gold. The
-walls were studded with precious stones set in gold plate, and stone and
-lapis lazuli pillars supported cedar roof beams. The texts describe the
-god’s gilded bedchamber adjacent to the throne room.
+*__H. Esagila__* The principal temple of Babylon, Esagila (“house of the uplifted head”), was dedicated to the patron deity of the city Marduk. It lay S of Etemenanki, which must have overshadowed it. The excavations by Koldewey in the *‘Amrān Ibn ‘Alī* mound disclosed sufficient evidence to recover the ground plan of two building complexes. The main shrine to the west (10 by 79 m, 33 by 260 ft) was entered by four doors, one on each side. At a lower level than the principal shrine, that of Marduk, were chapels and niches for lesser deities around the central courtyard. Nabopolassar claimed to have redecorated the Marduk shrine with gypsum and silver alloy, which Nebuchadrezzar replaced with fine gold. The walls were studded with precious stones set in gold plate, and stone and lapis lazuli pillars supported cedar roof beams. The texts describe the god’s gilded bedchamber adjacent to the throne room.
 
-Herodotus (i.183) described two statues of the god, one seated. The
-larger was said to be 12 ells (6 m, 20 ft) high, but Herodotus did not
-see it, being told that it had been carried off by Xerxes. This was the
-usual practice of those kings who wished to curb the independent
-citizens of Babylon. The opposite action, that of “taking the hand of
-*Bēl* (Marduk)” to lead the statue out of the *akitu* (New Year) house
-and into Esagila, ensured their authority and usually acceptance by the
-people. Herodotus was told that 800 talents (16.8 metric tons) of gold
-were used for these statues and for the table, throne, and footstool. A
-thousand talents of incense were burned annually at the festivals while
-innumerable sacrificial animals were brought in to the two golden
-altars, one used for large, the other for small victims.
+Herodotus (i.183) described two statues of the god, one seated. The larger was said to be 12 ells (6 m, 20 ft) high, but Herodotus did not see it, being told that it had been carried off by Xerxes. This was the usual practice of those kings who wished to curb the independent citizens of Babylon. The opposite action, that of “taking the hand of *Bēl* (Marduk)” to lead the statue out of the *akitu* (New Year) house and into Esagila, ensured their authority and usually acceptance by the people. Herodotus was told that 800 talents (16.8 metric tons) of gold were used for these statues and for the table, throne, and footstool. A thousand talents of incense were burned annually at the festivals while innumerable sacrificial animals were brought in to the two golden altars, one used for large, the other for small victims.
 
-Esagila was first mentioned by *Šulgi* of Ur, who restored it ca 2100
-b.c. Sabium, Hammurabi, Samsuiluna, Ammi-ditana, *Ammi-ṣaduqa* and
-Samsu-ditana all refer to their devotion to the temple during the 1st
-Dynasty of Babylon (1894–1595), a care that was to be continued by every
-king and conqueror of Babylon except Sennacherib. Some refer to their
-dedications to Marduk and *Ṣarpānītum* or to *Nabû* and *Tašmetum* in
-their twin shrine at Ezida (“house of knowledge”). One of the best-known
-of these votive gifts was the diorite stele engraved with the laws of
-Hammurabi and set up in Esagila as a record of the manner in which that
-king had exercised justice. The standard brick inscription of
-Nebuchadrezzar describes him as “provider for Esagila and Ezida.” At a
-lower level in Esagila were located the shrines of Ea to the north, Anu
-to the south, and elsewhere Nusku and Sin. To the east of Esagila lay a
-further complex of buildings (89 by 116 m, 292 by 380 ft) the precise
-purpose of which is not known.
+Esagila was first mentioned by *Šulgi* of Ur, who restored it ca 2100 b.c. Sabium, Hammurabi, Samsuiluna, Ammi-ditana, *Ammi-ṣaduqa* and Samsu-ditana all refer to their devotion to the temple during the 1st Dynasty of Babylon (1894–1595), a care that was to be continued by every king and conqueror of Babylon except Sennacherib. Some refer to their dedications to Marduk and *Ṣarpānītum* or to *Nabû* and *Tašmetum* in their twin shrine at Ezida (“house of knowledge”). One of the best-known of these votive gifts was the diorite stele engraved with the laws of Hammurabi and set up in Esagila as a record of the manner in which that king had exercised justice. The standard brick inscription of Nebuchadrezzar describes him as “provider for Esagila and Ezida.” At a lower level in Esagila were located the shrines of Ea to the north, Anu to the south, and elsewhere Nusku and Sin. To the east of Esagila lay a further complex of buildings (89 by 116 m, 292 by 380 ft) the precise purpose of which is not known.
 
-*__I. Other Temples__* In addition to Ezida, Babylonian texts refer to at
-least fifty other temples by name, Nebuchadrezzar himself claiming to
-have built fifteen of them within the city. Excavations have uncovered
-the temple of Ishtar of Agade (*Emašdari*) in the area of private houses
-(Merkes), E of the Procession Way. This faced toward the southwest and
-was rectangular in form (37 by 31 m, 111 by 102 ft) with two entrances,
-S and E, leading into an inner court. The plan was similar to others of
-the period (e.g., Ezida of Borsippa) with six antechambers alongside the
-antechapel and shrine, which led directly off the court. This temple was
-kept in order by Nebuchadrezzar and Nabonidus and lasted into the
-Persian era.
+*__I. Other Temples__* In addition to Ezida, Babylonian texts refer to at least fifty other temples by name, Nebuchadrezzar himself claiming to have built fifteen of them within the city. Excavations have uncovered the temple of Ishtar of Agade (*Emašdari*) in the area of private houses (Merkes), E of the Procession Way. This faced toward the southwest and was rectangular in form (37 by 31 m, 111 by 102 ft) with two entrances, S and E, leading into an inner court. The plan was similar to others of the period (e.g., Ezida of Borsippa) with six antechambers alongside the antechapel and shrine, which led directly off the court. This temple was kept in order by Nebuchadrezzar and Nabonidus and lasted into the Persian era.
 
-Koldewey also cleared two temples E of *‘Amrān Ibn ‘Alī* in the
-*Išin-Aswad* mound. One cannot be identified as yet due to the absence
-of inscriptions, hence its designation “Z” temple. This was in continual
-use over at least seventeen hundred years. To the east lay the shrine of
-Ninurta (Epatitilla, “temple of the staff of life”) built by
-Nabopolassar, according to its foundation cylinder. This was restored by
-Nebuchadrezzar. Here the plan (190 by 133 m, 623 by 436 ft) differs, the
-main entry being to the east, with subsidiary doors to the north and
-south. Off the courtyard to the west lay three interconnected equal
-shrines, each with a dais perhaps dedicated to Ninurta and his wife Gula
-and son Nusku.
+Koldewey also cleared two temples E of *‘Amrān Ibn ‘Alī* in the *Išin-Aswad* mound. One cannot be identified as yet due to the absence of inscriptions, hence its designation “Z” temple. This was in continual use over at least seventeen hundred years. To the east lay the shrine of Ninurta (Epatitilla, “temple of the staff of life”) built by Nabopolassar, according to its foundation cylinder. This was restored by Nebuchadrezzar. Here the plan (190 by 133 m, 623 by 436 ft) differs, the main entry being to the east, with subsidiary doors to the north and south. Off the courtyard to the west lay three interconnected equal shrines, each with a dais perhaps dedicated to Ninurta and his wife Gula and son Nusku.
 
-Near the Ishtar gate stood the well-preserved temple of *Ninmaḫ*,
-goddess of the underworld, constructed by Ashurbanipal ca 646 b.c.
-Outside this massive building, called *Emaḫ*, stood an altar. Passing
-this to the main door on the north side, worshipers would then traverse
-the courtyard, passing a well, to enter the shrine in the antechapel.
-Here they would kneel before the statue of the goddess splendidly
-clothed and standing on its dais. The architect, *Labāši*, had designed
-the surrounding storerooms with a view to security, since many valuable
-votive offerings must have been hoarded there together with the many
-fertility figurines found in them. The outer wall was defended by
-towers, since the shrine may have lain outside the main city defenses.
-This building has now been fully restored by the Iraqi Department of
-Antiquities. The cuneiform texts imply that there were many shrines in
-the city, “180 open-air shrines for Ishtar” and “300 daises for the
-Igigi gods and 1200 daises of the Anunnaki gods.” There were also more
-than two hundred pedestals for other deities mentioned. The open-air
-shrines were probably similar to those for the intercessory Lama goddess
-found at crossroads at Ur.
+Near the Ishtar gate stood the well-preserved temple of *Ninmaḫ*, goddess of the underworld, constructed by Ashurbanipal ca 646 b.c. Outside this massive building, called *Emaḫ*, stood an altar. Passing this to the main door on the north side, worshipers would then traverse the courtyard, passing a well, to enter the shrine in the antechapel. Here they would kneel before the statue of the goddess splendidly clothed and standing on its dais. The architect, *Labāši*, had designed the surrounding storerooms with a view to security, since many valuable votive offerings must have been hoarded there together with the many fertility figurines found in them. The outer wall was defended by towers, since the shrine may have lain outside the main city defenses. This building has now been fully restored by the Iraqi Department of Antiquities. The cuneiform texts imply that there were many shrines in the city, “180 open-air shrines for Ishtar” and “300 daises for the
+Igigi gods and 1200 daises of the Anunnaki gods.” There were also more than two hundred pedestals for other deities mentioned. The open-air shrines were probably similar to those for the intercessory Lama goddess found at crossroads at Ur.
 
-*__J. Private Houses__* A series of mounds to the north of *Išin Aswad*
-at Babylon are called locally Merkes, “trade center.” Since the levels
-containing houses were easier to excavate, being on raised ground, it
-was possible for Koldewey to trace occupation here almost continuously
-from the Old Babylonian period to the Parthian period. Here too the
-streets ran almost straight and crossed at right angles. The houses
-consisted of a series of rooms around a central courtyard. They were
-made of mud brick roofed with mats set over wooden beams, and many
-showed signs of the fire that had raged in the destruction of the city
-at the hands of the Hittites, Sennacherib, or Xerxes. Several of the
-buildings had foundation walls 1.8 m (6 ft) thick; and, like “the Great
-House” in Merkes, this may indicate that they supported more than one
-story. Nevertheless, Herodotus’ observation that “the city was filled
-with houses of three or four stories” cannot now be checked. Some houses
-may have been built on higher ground than others. Moreover, his
-expression *órophos* could be rendered “roofs” rather than “story.”
+*__J. Private Houses__* A series of mounds to the north of *Išin Aswad* at Babylon are called locally Merkes, “trade center.” Since the levels containing houses were easier to excavate, being on raised ground, it was possible for Koldewey to trace occupation here almost continuously from the Old Babylonian period to the Parthian period. Here too the streets ran almost straight and crossed at right angles. The houses consisted of a series of rooms around a central courtyard. They were made of mud brick roofed with mats set over wooden beams, and many showed signs of the fire that had raged in the destruction of the city at the hands of the Hittites, Sennacherib, or Xerxes. Several of the buildings had foundation walls 1.8 m (6 ft) thick; and, like “the Great House” in Merkes, this may indicate that they supported more than one story. Nevertheless, Herodotus’ observation that “the city was filled with houses of three or four stories” cannot now be checked. Some houses may have been built on higher ground than others. Moreover, his expression *órophos* could be rendered “roofs” rather than “story.”
 
-*__K. Documents__* Apart from the architectural remains, the decorations
-of the Ishtar gate, and small objects, the most significant finds from
-ancient Babylon are more than thirty thousand inscribed tablets. Since
-apart from the Merkes the Old Babylonian levels have not been explored,
-mainly because of the high water table of the region, most of these are
-dated to the Chaldean dynasty or later. They provide an intimate
-knowledge of personal dealings by merchants until the Seleucid era. Many
-were obtained by locals in their illicit diggings and cannot now be
-associated with their original context. These tablets are mainly
-contracts and administrative documents. There are, however, a number of
-literary and religious texts originating in the temples in the
-post-Achaemenid period up to a.d. 100. A few of these traditional
-“school-texts” are in Greek on clay tablets. These continued to be
-copied long after Aramaic had become the official language written on
-more perishable materials, and they include astronomical observations,
-diaries, almanacs, and omens.
+*__K. Documents__* Apart from the architectural remains, the decorations of the Ishtar gate, and small objects, the most significant finds from ancient Babylon are more than thirty thousand inscribed tablets. Since apart from the Merkes the Old Babylonian levels have not been explored, mainly because of the high water table of the region, most of these are dated to the Chaldean dynasty or later. They provide an intimate knowledge of personal dealings by merchants until the Seleucid era. Many were obtained by locals in their illicit diggings and cannot now be associated with their original context. These tablets are mainly contracts and administrative documents. There are, however, a number of literary and religious texts originating in the temples in the post-Achaemenid period up to a.d. 100. A few of these traditional “school-texts” are in Greek on clay tablets. These continued to be copied long after Aramaic had become the official language written on more perishable materials, and they include astronomical observations, diaries, almanacs, and omens.
 
-##V. Later History
+**V. Later History**
 
-*__A. Fall of Babylon, 539b.c.__* In 544 Nabonidus returned from *Teimā*
-to Babylon, with which he had been in contact throughout his ten-year
-exile. He does not, however, appear to have taken over control of the
-city itself again from Belshazzar when, according to the Babylonian
-Chronicle for his seventeenth year, the gods of the chief cities of
-Babylonia, except Borsippa, Kutha, and Sippar, were brought into the
-capital for safekeeping. During Cyrus’ attack on Opis the citizens of
-Babylon apparently revolted but were suppressed by Nabonidus with some
-bloodshed. He himself fled when Sippar fell on the 15th of *Tešrītu*,
-and the next day Ugbaru, the governor of Gutium, and the Persian army
-entered the city without a battle. This appears to have been effected by
-the strategem of diverting the river Euphrates, thus drying up the moat
-defenses and enabling the enemy to enter the city by marching up the
-dried-up river bed. This may also imply some collaboration with
-sympathizers inside the walls. That night Belshazzar was killed (Dnl.
-5:30). For the remainder of the month Persian troops occupied Esagila,
-though without bearing arms or interrupting the religious ceremonies.
+*__A. Fall of Babylon, 539b.c.__* In 544 Nabonidus returned from *Teimā* to Babylon, with which he had been in contact throughout his ten-year exile. He does not, however, appear to have taken over control of the city itself again from Belshazzar when, according to the Babylonian Chronicle for his seventeenth year, the gods of the chief cities of Babylonia, except Borsippa, Kutha, and Sippar, were brought into the capital for safekeeping. During Cyrus’ attack on Opis the citizens of Babylon apparently revolted but were suppressed by Nabonidus with some bloodshed. He himself fled when Sippar fell on the 15th of *Tešrītu*, and the next day Ugbaru, the governor of Gutium, and the Persian army entered the city without a battle. This appears to have been effected by the strategem of diverting the river Euphrates, thus drying up the moat defenses and enabling the enemy to enter the city by marching up the dried-up river bed. This may also imply some collaboration with sympathizers inside the walls. That night Belshazzar was killed (Dnl. 5:30). For the remainder of the month Persian troops occupied Esagila, though without bearing arms or interrupting the religious ceremonies.
 
-On the 3rd of *Araḫ-samnu* (Oct 29, 539 b.c.), sixteen days after the
-capitulation, Cyrus himself entered the city amid much public acclaim,
-ending the Chaldean dynasty as predicted by the Hebrew prophets (Isa.
-13:21; Jer. 50f). Cyrus treated the city with great respect, returning
-to their own shrines the statues of the deities brought in from other
-cities. The Jews were sent home with compensatory assistance. He
-appointed new governors, so ensuring peace and stable conditions
-essential to the proper maintenance of the religious centers.
+On the 3rd of *Araḫ-samnu* (Oct 29, 539 b.c.), sixteen days after the capitulation, Cyrus himself entered the city amid much public acclaim, ending the Chaldean dynasty as predicted by the Hebrew prophets (Isa. 13:21; Jer. 50f). Cyrus treated the city with great respect, returning to their own shrines the statues of the deities brought in from other cities. The Jews were sent home with compensatory assistance. He appointed new governors, so ensuring peace and stable conditions essential to the proper maintenance of the religious centers.
 
-*__B. Achaemenid City__* In *Nisānu* 538, Cambyses II son of Cyrus II
-“took the hands of *Bēl*,” but left the city under the control of a
-governor, who kept the peace until Cambyses’ death in 522 b.c. There
-followed the first of the recurrent revolts. *Nidintu-Bēl* seized power,
-taking the emotive throne-name Nebuchadrezzar III (Oct.–Dec. 522).
-Darius, the legitimate king (520–485), put down a further rebellion in
-the following year but spared the city, building there an arsenal, a
-Persian-style columned hall (*appa danna*), as an addition to the palace
-he used during his stay in the city.
+*__B. Achaemenid City__* In *Nisānu* 538, Cambyses II son of Cyrus II “took the hands of *Bēl*,” but left the city under the control of a governor, who kept the peace until Cambyses’ death in 522 b.c. There followed the first of the recurrent revolts. *Nidintu-Bēl* seized power, taking the emotive throne-name Nebuchadrezzar III (Oct.–Dec. 522).Darius, the legitimate king (520–485), put down a further rebellion in the following year but spared the city, building there an arsenal, a Persian-style columned hall (*appa danna*), as an addition to the palace he used during his stay in the city.
 
-Xerxes, possibly the Ahasuerus of Ezr. 4:6, maintained Babylon’s
-importance as an administrative center and provincial capital, but the
-town declined after an uprising that he successfully suppressed. Another
-rebellion in his fourth year (482) led him to destroy the ziggurat and
-to remove the statue of Marduk. The walls remained standing in good
-enough repair for Herodotus, who probably visited the city ca 460 b.c.,
-to describe them in detail (i.178–188), vindicated to a large measure by
-subsequent researches. There is no evidence that the decree of Xerxes
-imposing the worship of Ahuramazda was ever taken seriously.
+Xerxes, possibly the Ahasuerus of Ezr. 4:6, maintained Babylon’s importance as an administrative center and provincial capital, but the town declined after an uprising that he successfully suppressed. Another rebellion in his fourth year (482) led him to destroy the ziggurat and to remove the statue of Marduk. The walls remained standing in good enough repair for Herodotus, who probably visited the city ca 460 b.c., to describe them in detail (i.178–188), vindicated to a large measure by subsequent researches. There is no evidence that the decree of Xerxes imposing the worship of Ahuramazda was ever taken seriously.
 
-Economic texts from the Egibi family and the *Murašu* archives from
-Nippur (460–400 [5 highlights]b.c.) show continued activity despite
-increasing inflation which more than doubled the rent on a small house,
-from 15 shekels per annum under Cyrus II to almost 40 shekels in the
-reign of Artaxerxes I (Longimanus, 465–424), when Ezra and Nehemiah left
-Babylon to return to Jerusalem (Ezr. 7:1; Neh. 2:1). Artaxerxes II
-(404–359), according to Berossus, was the first Persian ruler to
-introduce the statue of Aphrodite or Anahita into the city. Artaxerxes
-III (Ochus, 358–338) could be the builder or restorer of the *appa
-danna* found by Koldewey.
+Economic texts from the Egibi family and the *Murašu* archives from Nippur (460–400 [5 highlights]b.c.) show continued activity despite increasing inflation which more than doubled the rent on a small house, from 15 shekels per annum under Cyrus II to almost 40 shekels in the reign of Artaxerxes I (Longimanus, 465–424), when Ezra and Nehemiah left Babylon to return to Jerusalem (Ezr. 7:1; Neh. 2:1). Artaxerxes II (404–359), according to Berossus, was the first Persian ruler to
+introduce the statue of Aphrodite or Anahita into the city. Artaxerxes III (Ochus, 358–338) could be the builder or restorer of the *appa danna* found by Koldewey.
 
-*__C. Hellenistic Period__* After his victory at Gaugamela near Arbela
-(Erbil), Oct. 1, 331 b.c., Alexander marched to Babylon, where the
-Macedonian was triumphantly acclaimed, the Persian garrison offering no
-opposition. He offered sacrifices to Marduk, ordered the rebuilding of
-temples that Xerxes allegedly had destroyed, and then a month later
-moved on to Susa. He later returned to further his elaborate plans for
-the sacred city, on which he paid out 600,000 days’ wages for clearing
-the rubble from the precincts of Esagila (Strabo xvi.1). This debris was
-dumped on that part of the ruins now called *Ḥomera*. The Jews who had
-fought in his army refused to take any part in the restoration of the
-temple of *Bēl* (Josephus *CAp* i.192). Alexander also planned a new
-port, but this too was thwarted by his death, June 13, 323. The Greek
-theater inside the east wall (*Ḥomera*), cleared by Koldewey and Lenzen,
-may have been built at this time, though it was unquestionably restored
+*__C. Hellenistic Period__* After his victory at Gaugamela near Arbela (Erbil), Oct. 1, 331 b.c., Alexander marched to Babylon, where the Macedonian was triumphantly acclaimed, the Persian garrison offering no opposition. He offered sacrifices to Marduk, ordered the rebuilding of temples that Xerxes allegedly had destroyed, and then a month later moved on to Susa. He later returned to further his elaborate plans for the sacred city, on which he paid out 600,000 days’ wages for clearing the rubble from the precincts of Esagila (Strabo xvi.1). This debris was dumped on that part of the ruins now called *Ḥomera*. The Jews who had fought in his army refused to take any part in the restoration of the temple of *Bēl* (Josephus *CAp* i.192). Alexander also planned a new port, but this too was thwarted by his death, June 13, 323. The Greek theater inside the east wall (*Ḥomera*), cleared by Koldewey and Lenzen, may have been built at this time, though it was unquestionably restored
 in the time of Antiochus IV.
 
-*__D. Seleucid-Parthians__* A king list from Babylon written soon after
-175 b.c. names the successors of Alexander who ruled the city — Philip
-Arrhidaeus, Antigonus, Alexander IV, and Seleucus I (323–250). Before
-Seleucus died Babylon’s economic but not its religious importance had
-declined sharply, a process hastened by the foundation of a new capital
-at Seleucia (Tell \`Umar) on the Tigris by his successor Antiochus I, in
-274 b.c.
+*__D. Seleucid-Parthians__* A king list from Babylon written soon after 175 b.c. names the successors of Alexander who ruled the city — Philip Arrhidaeus, Antigonus, Alexander IV, and Seleucus I (323–250). Before Seleucus died Babylon’s economic but not its religious importance had declined sharply, a process hastened by the foundation of a new capital at Seleucia (Tell \`Umar) on the Tigris by his successor Antiochus I, in 274 b.c.
 
 *__E. Later City__* Babylon’s attraction as a “holy city” continued. The satrap Hyspaosines of Characene suppressed a revolt led by a certain Hymerus in 127 b.c. when the priests of Esagila were active. Hymerus issued coins as “king of Babylon” in 124/23, but by the following year Mithradates II had regained control. An independent ruler Gotarzes I was recognized as ruler in 91–80, and the city lay in Parthian hands (Mithradates III, 58–55) until taken over by a rebel Orodes. It remained
 a center of Hellenism, despite the opposition of a significant traditional Babylonian priestly party and of a minority of Jews, from among whom may have come Hillel. Babylon supported the Jews in Palestine who opposed Herod (Josephus Ant. xv.2.1–3). The close association between these Jews in Babylon, who enjoyed self-government there in the 1st cent, and their fellows in Jerusalem is suggested in Acts 2:9–11. Dated cuneiform texts up to a.d. 110 show that the site was still occupied. While Babylon may have been the site of an early Christian church (1 Pet. 5:13), there is no evidence (*see* Babylon in the NT). When Trajan entered the city in 115 he sacrificed to Alexander’s *manes* but made no reference to the continued existence of other religious practices or buildings. According to Septimius Severus the site was deserted by a.d. 200.
 
-##VI. Exploration and Excavation
+**VI. Exploration and Excavation**
 
-Since the ancient city of Babylon long lay deserted and unidentified,
-many early travelers, including Schiltberger (ca 1400), di Conti
-(1428–1453), Rauwolf (1574), and John Eldred (1583), thought it lay
-elsewhere, probably at the upstanding remains of *‘Aqar Qūf*, W of
-Baghdad, which resembled the Tower of Babel. Benjamin of Tudela (12th
-cent), however, considered that the ruins of Birs Nimrûd covered ancient
-Babylon.
+Since the ancient city of Babylon long lay deserted and unidentified, many early travelers, including Schiltberger (ca 1400), di Conti (1428–1453), Rauwolf (1574), and John Eldred (1583), thought it lay elsewhere, probably at the upstanding remains of *‘Aqar Qūf*, W of Baghdad, which resembled the Tower of Babel. Benjamin of Tudela (12th cent), however, considered that the ruins of Birs Nimrûd covered ancient Babylon.
 
-Pietro della Valle, visiting Bâbil in 1616, correctly equated it with
-Babylon, as did Emmanuel Ballyet in 1755 and Carsten Niebuhr some ten
-years later. Surface exploration was undertaken by C. J. Rich (1811/12,
-[6 highlights]1821) and J. S. Buckingham and Mellino (1827). Ker Porter
-mapped the ruins (1818), as did Coste and Flandin (1841), while
-soundings were made by R. Mignan (1828) and more seriously by A. H.
-Layard (1850).
+Pietro della Valle, visiting Bâbil in 1616, correctly equated it with Babylon, as did Emmanuel Ballyet in 1755 and Carsten Niebuhr some ten years later. Surface exploration was undertaken by C. J. Rich (1811/12, [6 highlights]1821) and J. S. Buckingham and Mellino (1827). Ker Porter mapped the ruins (1818), as did Coste and Flandin (1841), while soundings were made by R. Mignan (1828) and more seriously by A. H. Layard (1850).
 
-The first systematic excavations were directed by a French consul,
-Fresnel, with Oppert and Thomas in 1852. Their finds were regrettably
-lost when a boat containing them foundered at Qurna. Work was continued
-by E. Sachau in 1897/98, but it was left to the Deutsche
-Orientgesellschaft under Robert Koldewey to plan and carry out
-scientific excavations throughout the years 1899–1917. Work began with
-the Procession Way, the temple of *Ninmaḫ*, and the palaces (1900), the
-Ninurta temple (1901), the Ishtar gate (1902), the Persian buildings
-(1906/07), Merkes (1908), and the rest of the *Qaṣr* (1911/12).
+The first systematic excavations were directed by a French consul, Fresnel, with Oppert and Thomas in 1852. Their finds were regrettably lost when a boat containing them foundered at Qurna. Work was continued by E. Sachau in 1897/98, but it was left to the Deutsche Orientgesellschaft under Robert Koldewey to plan and carry out scientific excavations throughout the years 1899–1917. Work began with the Procession Way, the temple of *Ninmaḫ*, and the palaces (1900), the Ninurta temple (1901), the Ishtar gate (1902), the Persian buildings (1906/07), Merkes (1908), and the rest of the *Qaṣr* (1911/12).
 
-From 1955 to 1968 the Iraqi Department of Antiquities carried out
-further clearances, especially of the Ishtar gateway, which was
-partially restored together with the Procession Way and the palaces. The
-*Ninmaḫ* temple was reconstructed, and a museum and rest house built on
-the site, which is also partially covered by the village of Jumjummah.
-The German Archaeological Institute has continued its interest in the
-site by excavating the quay wall and the Greek theater.
+From 1955 to 1968 the Iraqi Department of Antiquities carried out further clearances, especially of the Ishtar gateway, which was partially restored together with the Procession Way and the palaces. The *Ninmaḫ* temple was reconstructed, and a museum and rest house built on the site, which is also partially covered by the village of Jumjummah. The German Archaeological Institute has continued its interest in the site by excavating the quay wall and the Greek theater.
 
 *See also* Archeology of Mesopotamia.
 
-*__Bibliography.__*—R. Koldewey, *Excavations at Babylon* (1914); E.
-Unger, *Babylon,* *die heilige Stadt* (1931); “Babylon” in *Reallexikon
-der Assyriologie*, II (1932); O. E. Ravn, *Herodutus’ Description of
-Babylon* (1932); W. Andrae, *Babylon,* *die versunkene Weltstadt und ihr
-Ausgräber* *Robert Koldewey* (1952); F. Wetzel, *Das Babylon der
-Spätzeit* (1957); A. Parrot, *Babylon and the OT* (1958); H. J. Klengel,
-in *Forschungen und Berichte*, 5 (1962); J. Neusner, *History of the
-Jews in Babylonia: The Parthian Period* (1965); H. W. F. Saggs, in AOTS,
-pp. 39–56.
+*__Bibliography.__*—R. Koldewey, *Excavations at Babylon* (1914); E. Unger, *Babylon,* *die heilige Stadt* (1931); “Babylon” in *Reallexikon der Assyriologie*, II (1932); O. E. Ravn, *Herodutus’ Description of Babylon* (1932); W. Andrae, *Babylon,* *die versunkene Weltstadt und ihr Ausgräber* *Robert Koldewey* (1952); F. Wetzel, *Das Babylon der Spätzeit* (1957); A. Parrot, *Babylon and the OT* (1958); H. J. Klengel, in *Forschungen und Berichte*, 5 (1962); J. Neusner, *History of the Jews in Babylonia: The Parthian Period* (1965); H. W. F. Saggs, in AOTS, pp. 39–56.
 
 D. J. Wiseman
 
