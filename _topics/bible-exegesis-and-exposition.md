@@ -8,7 +8,7 @@ layout: lesson
 
 Chester McCalley [<sup>2</sup>](#sdfootnote2sym)
 
-*_Introduction_*
+__*_Introduction_*__
 
 What is the relationship between exegesis and exposition? What is Bible exposition or expository preaching? This article gives a method for moving from exegesis to expository preaching. Think of a tower with two spigots: high and low.
 
