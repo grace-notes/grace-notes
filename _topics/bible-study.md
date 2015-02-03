@@ -12,112 +12,42 @@ This study is designed to introduce the student to basic facts about the Bible a
 
 __**PERSONAL** _PREPARATION FOR BIBLE STUDY___
 
-Personal preparation in the study of the Scripture cannot be
-overemphasized. First and foremost, we must have believed in Jesus
-Christ as our Savior because the “natural man” cannot accept or
-understand the things of the Spirit of God. They are spiritually
-appraised (1 Cor 2:14).
+Personal preparation in the study of the Scripture cannot be overemphasized. First and foremost, we must have believed in Jesus Christ as our Savior because the “natural man” cannot accept or understand the things of the Spirit of God. They are spiritually appraised (1 Cor 2:14).
 
-God’s word claims that it is divinely inspired (2 Tim 3:16-17) so we
-must begin our study by accepting that statement as fact. This is not a
-leap of faith as some would have you believe, but is indeed just a step
-of faith which we will see as this study progresses.
+God’s word claims that it is divinely inspired (2 Tim 3:16-17) so we must begin our study by accepting that statement as fact. This is not a leap of faith as some would have you believe, but is indeed just a step of faith which we will see as this study progresses.
 
-We also must pray for wisdom in understanding the Scriptures. God’s Word
-tells us if we lack wisdom to ask for it, because God will give it to us
-freely (James 1:5). Passionate prayer for correct knowledge and
-discernment will be answered because it is clearly within God’s will (1
-John 5:14 cf Mat 7:7-8).
+We also must pray for wisdom in understanding the Scriptures. God’s Word tells us if we lack wisdom to ask for it, because God will give it to us freely (James 1:5). Passionate prayer for correct knowledge and discernment will be answered because it is clearly within God’s will (1 John 5:14 cf Mat 7:7-8).
 
-We also must be willing to be diligent and patient in our study ( 2 Tim
-2:15), because many things of God’s Word are not readily discernible.
-When we realize that we are finite beings trying to comprehend the
-infinite mind of God in a small way, it is easy to see that it will take
-some time.
+We also must be willing to be diligent and patient in our study ( 2 Tim 2:15), because many things of God’s Word are not readily discernible. When we realize that we are finite beings trying to comprehend the infinite mind of God in a small way, it is easy to see that it will take some time.
 
-Your spiritual life is also of great importance in your desire to know.
-The Lord Jesus Christ said that “if anyone is willing to do His will, he
-shall know of the teaching (John 7:17).” If what you desire is simply an
-intellectual quest and not a relationship with the living God, then the
-knowledge you gain will always be lacking and distorted. Sadly, many
-people study God’s word so that they can walk by sight, but the greatest
-theologian of the Church, the Apostle Paul, said that he “walked by
-faith and not by sight (2 Cor 5:7).” We enter into salvation by grace
-through faith (Eph 2:8-9), and as we have entered, so we are to walk
-(Col 2:6), therefore we are to learn God’s word in order to have a
-greater faith.
+Your spiritual life is also of great importance in your desire to know. The Lord Jesus Christ said that “if anyone is willing to do His will, he  shall know of the teaching (John 7:17).” If what you desire is simply an intellectual quest and not a relationship with the living God, then the knowledge you gain will always be lacking and distorted. Sadly, many people study God’s word so that they can walk by sight, but the greatest theologian of the Church, the Apostle Paul, said that he “walked by faith and not by sight (2 Cor 5:7).” We enter into salvation by grace through faith (Eph 2:8-9), and as we have entered, so we are to walk (Col 2:6), therefore we are to learn God’s word in order to have a greater faith.
 
-It is also important that we consistently confess our sins and permit
-God to do the cleansing of our lives, so that greater fellowship may be
-attained with Him (1 John 1:6-10).
+It is also important that we consistently confess our sins and permit God to do the cleansing of our lives, so that greater fellowship may be attained with Him (1 John 1:6-10).
 
-WHAT IS TO BE GAINED FROM GOD’S WORD
+__*WHAT IS TO BE GAINED FROM GOD’S WORD*__
 
-There is a profound knowledge to be gained from God’s Word as we “grow
-in the grace and knowledge of our Lord Jesus Christ (2 Pet 3:14-18).
-Along with this is our growth in faith as we”hear" God’s Word through
-the Scriptures (Rom 10:17). God’s Word is necessary for the purification
-of our lives because it is His Word which is truth (John 17:17). As we
-prepare to serve Him, we must put on His armor, which is done by the
-Holy Spirit (Eph 6:17). With His Spirit at work in our lives we will
-also have power in ministry (Eph 2:10). With this knowledge of His Word,
-we can practice the truth in the name of the Lord Jesus (Col 3:16-17)
-and proclaim it to a lost and dying world (John 17:17-19; Heb 5:12).
+There is a profound knowledge to be gained from God’s Word as we “grow in the grace and knowledge of our Lord Jesus Christ (2 Pet 3:14-18). Along with this is our growth in faith as we”hear" God’s Word through the Scriptures (Rom 10:17). God’s Word is necessary for the purification of our lives because it is His Word which is truth (John 17:17). As we prepare to serve Him, we must put on His armor, which is done by the Holy Spirit (Eph 6:17). With His Spirit at work in our lives we will also have power in ministry (Eph 2:10). With this knowledge of His Word, we can practice the truth in the name of the Lord Jesus (Col 3:16-17) and proclaim it to a lost and dying world (John 17:17-19; Heb 5:12).
 
-WHAT IS THE BIBLE
+__*WHAT IS THE BIBLE*__
 
-The Bible is not simply another book. Jesus Christ called it “The Book
-(Heb 10:7).” Without it man cannot know the absolute standard of
-righteousness and the need for grace in his life.
+The Bible is not simply another book. Jesus Christ called it “The Book (Heb 10:7).” Without it man cannot know the absolute standard of righteousness and the need for grace in his life.
 
-The Bible is the written revelation of the Living Word of God, our Lord
-Jesus Christ (Heb 4:12 cf John 5:39-47). It is accepted by faith and
-proved by history.
+The Bible is the written revelation of the Living Word of God, our Lord Jesus Christ (Heb 4:12 cf John 5:39-47). It is accepted by faith and proved by history.
 
-Every single part of the Bible is inspired by God (2 Tim 3:16-17) and is
-thus profitable. Inspiration is more than human genius and illumination.
-Illumination is the influence of the Holy Spirit upon the student of the
-Word. Inspiration is more than revelation which means to take the veil
-off, it is divinely initiated. The veil may be removed from a bride, but
-the bride is yet to be fully understood. Inspiration is “God’s breath”
-expressing itself through a human personality.
+Every single part of the Bible is inspired by God (2 Tim 3:16-17) and is thus profitable. Inspiration is more than human genius and illumination. Illumination is the influence of the Holy Spirit upon the student of the Word. Inspiration is more than revelation which means to take the veil off, it is divinely initiated. The veil may be removed from a bride, but the bride is yet to be fully understood. Inspiration is “God’s breath” expressing itself through a human personality.
 
-The Old Testament was written for the most part in Hebrew, except for
-Daniel Chapters Two through Seven and Ezra Chapters Four through Seven
-which were written in a sister language to the Hebrew, which is Aramaic.
-All of the New Testament is written in Koine (common) Greek.
+The Old Testament was written for the most part in Hebrew, except for Daniel Chapters Two through Seven and Ezra Chapters Four through Seven which were written in a sister language to the Hebrew, which is Aramaic. All of the New Testament is written in Koine (common) Greek.
 
-THE DIVISIONS OF THE BIBLE
+__*THE DIVISIONS OF THE BIBLE*__
 
-The Bible is divided into two Testaments, the old and the new. A
-“testament” is a covenant or contract. The “Old” Testament looks at the
-original covenants that God made with man concerning the coming Messiah.
-The New Testament looks at the arrival of the Messiah and the new
-contracts that were made.
+The Bible is divided into two Testaments, the old and the new. A “testament” is a covenant or contract. The “Old” Testament looks at the original covenants that God made with man concerning the coming Messiah. The New Testament looks at the arrival of the Messiah and the new contracts that were made.
 
-There are 39 books in the Old Testament and 27 books in the New
-Testament, for a total of 66 books that are in the Bible. There are
-1,189 chapters with 929 of them in the Old Testament and the other 260
-chapters located in the New Testament. The Old Testament contains 23,214
-verses and the New Testament contains 7,959 verses for a total of 31,
-173 verses of Scripture. The 39 books of the Old Testament were written
-by over 30 authors. The 27 books of the New Testament were written by 10
+There are 39 books in the Old Testament and 27 books in the New Testament, for a total of 66 books that are in the Bible. There are 1,189 chapters with 929 of them in the Old Testament and the other 260 chapters located in the New Testament. The Old Testament contains 23,214 verses and the New Testament contains 7,959 verses for a total of 31, 173 verses of Scripture. The 39 books of the Old Testament were written by over 30 authors. The 27 books of the New Testament were written by 10
 authors.
 
-In the Old Testament, the first five books, Genesis, Exodus, Leviticus,
-Numbers and Deuteronomy are called the “Torah (Law),” and also called
-the “Pentateuch.” The Pentateuch is followed by twelve Historical books:
-Joshua, Judges, Ruth, 1 & 2 Samuel, 1 & 2 Kings, 1 & 2 Chronicles, Ezra,
-Nehemiah and Esther. The next grouping contains five Poetical books:
-Job, Psalms, Proverbs, Ecclesiastes and the Song of Solomon. The
-poetical books are followed by the five Major Prophets: Isaiah,
-Jeremiah, Lamentations, Ezekial and Daniel. Twelve Minor Prophets then
-conclude the Old Testament: Hosea, Joel, Amos, Obadiah, Johan, Micah,
-Nahum, Habakkuk, Zephaniah, Haggai, Zechariah and Malachi.
+In the Old Testament, the first five books, Genesis, Exodus, Leviticus, Numbers and Deuteronomy are called the “Torah (Law),” and also called the “Pentateuch.” The Pentateuch is followed by twelve Historical books: Joshua, Judges, Ruth, 1 & 2 Samuel, 1 & 2 Kings, 1 & 2 Chronicles, Ezra, Nehemiah and Esther. The next grouping contains five Poetical books: Job, Psalms, Proverbs, Ecclesiastes and the Song of Solomon. The poetical books are followed by the five Major Prophets: Isaiah, Jeremiah, Lamentations, Ezekial and Daniel. Twelve Minor Prophets then conclude the Old Testament: Hosea, Joel, Amos, Obadiah, Johan, Micah, Nahum, Habakkuk, Zephaniah, Haggai, Zechariah and Malachi.
 
-The New Testament begins with five Historical books: Matthew, Mark,
-Luke, John and the Book of Acts. The Historical books are followed by 21
-Epistles and one book of Prophecy (Revelation).
+The New Testament begins with five Historical books: Matthew, Mark, Luke, John and the Book of Acts. The Historical books are followed by 21 Epistles and one book of Prophecy (Revelation).
 
 AN OVERVIEW OF THE BIBLE
 
@@ -169,22 +99,13 @@ W. Satan’s Final Rebellion.
 
 X. New Heavens and Earth.
 
-BEGINNING TO STUDY THE BIBLE
+__*BEGINNING TO STUDY THE BIBLE*__
 
-As we seek to understand the Bible, we must constantly seeks answers to
-the questions, “who,” “what,” “when,” “where,” “why,” and how?" The
-answers to these questions must always be considered in view of two more
-questions, “how does this let us develop a relationship with our Lord
-Jesus Christ,” and “how then shall we live?”
+As we seek to understand the Bible, we must constantly seeks answers to the questions, “who,” “what,” “when,” “where,” “why,” and how?" The answers to these questions must always be considered in view of two more questions, “how does this let us develop a relationship with our Lord Jesus Christ,” and “how then shall we live?”
 
-We are going to take a simple look at principles that we must keep in
-mind while studying the Bible. These principles have been revealed by
-the Holy Spirit Himself through the written word. They are principles
-that we are to pass on from one generation to the next (2 Tim 2:2) so
-that we all might grow up in all respects in our Lord (Eph 4:11-16).
+We are going to take a simple look at principles that we must keep in mind while studying the Bible. These principles have been revealed by the Holy Spirit Himself through the written word. They are principles that we are to pass on from one generation to the next (2 Tim 2:2) so that we all might grow up in all respects in our Lord (Eph 4:11-16).
 
-LESSON 2
-========
+**LESSON 2**
 
 15 BASIC PRINCIPLES OF INTERPRETATION
 
