@@ -1,24 +1,16 @@
 ---
 title: Bible Study
+description: by Drue Freeman. How to study the Bible with understanding.
 layout: lesson
 ---
 
+**LESSON 1**
 
-**Principles of Bible Study 9**
+__*INTRODUCTION*__
 
-LESSON 1
-========
+This study is designed to introduce the student to basic facts about the Bible and also to introduce some principles that should be employed in one’s search of the Holy Scriptures. We are told in 2 Timothy 2:15 to “handle accurately the word of truth.” There are indeed some basic guidelines found in the Scripture to equip the student of the Word so as to fulfill the exhortation to deal correctly with God’s Word.
 
-INTRODUCTION
-
-This study is designed to introduce the student to basic facts about the
-Bible and also to introduce some principles that should be employed in
-one’s search of the Holy Scriptures. We are told in 2 Timothy 2:15 to
-“handle accurately the word of truth.” There are indeed some basic
-guidelines found in the Scripture to equip the student of the Word so as
-to fulfill the exhortation to deal correctly with God’s Word.
-
-**PERSONAL**PREPARATION FOR BIBLE STUDY
+__**PERSONAL** _PREPARATION FOR BIBLE STUDY___
 
 Personal preparation in the study of the Scripture cannot be
 overemphasized. First and foremost, we must have believed in Jesus
