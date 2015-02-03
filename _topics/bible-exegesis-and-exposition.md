@@ -12,7 +12,7 @@ __*Introduction*__
 
 What is the relationship between exegesis and exposition? What is Bible exposition or expository preaching? This article gives a method for moving from exegesis to expository preaching. Think of a tower with two spigots: high and low.
 
-Exegesis is the **top**spigot; exposition is at the **bottom**. The pastor using exegesis deals with Greek and Hebrew syntax, hermeneutics, theological arguments, and so forth. Exegesis (the high spigot) discovers the text’s meaning.
+Exegesis is the **top** spigot; exposition is at the **bottom**. The pastor using exegesis deals with Greek and Hebrew syntax, hermeneutics, theological arguments, and so forth. Exegesis (the high spigot) discovers the text’s meaning.
 
 But the pulpit is for teaching our congregations. Teaching from the high spigot lays our exegetical work before the congregation. Teaching from the low spigot permits teaching to flow from a level more comprehensible to the flock. Out objective is to communicate Bible truth, not to drown people in the depths of our technical analysis.
 
@@ -23,7 +23,7 @@ When pastors do not understand this—I speak as one who has made this mistake, 
 
 Are there people who are negative to Bible doctrine? Certainly; but a pastor ought to go back to the drawing board and ask, “Does my study move from exegesis down to expository teaching? Does everyone really understand the teaching?” If not, the pastor certainly bears the blame. The pastor is responsible both for teaching both children and his parents, both novice believers and advanced Christians? Yes, indeed, a shepherd cares for both adult sheep and lambs.
 
-*_Exegesis: Exposition’s Foundation_*
+__*Exegesis: Exposition’s Foundation*__
 
 The foundation of exposition is exegesis, but what is exegesis?
 
@@ -41,7 +41,7 @@ Usage of this word-group in Scripture is more useful than any definition that a 
 
 Here, two disciples met Jesus on the road to Emmaus. After walking with them, He broke bread and they recognized Him. The disciples began to relate something to others. The word relate is exegete (exēgeomai).
 
-The New King James Version translates the word as “told”: “And they **told** about the things that had happened on the road… “
+The New King James Version translates the word as “told”: “_And they **told** about the things that had happened on the road… _“
 
 The disciples began to tell or relate their experiences on the road and how they recognized Jesus during a meal.
 
@@ -77,9 +77,9 @@ Conclusion: exegesis refers to the explaining, declaring, telling, or relating o
 
 Now, what elements of exegesis are necessary for an accurate textual meaning?
 
-*_Elements of Exegesis_*
+**Elements of Exegesis**
 
-**Language**
+__*Language*__
 
 Why should a pastor examine the Hebrew Old Testament and the Greek New Testament? The strongest claim made by the Bible is this: Thus saith the Lord (“This is God speaking”). The Old Testament uses similar expressions about 3800 times. The reminder that “This is God’s word” appears an average of four times per page.
 
@@ -119,7 +119,7 @@ Teaching emphatically from the text and emphasizing doctrine eventually causes a
 
 Again, sound hermeneutics are essential to proper exegesis.
 
-*_Expression or Exposition_*
+__*Expression or Exposition*__
 
 A good definition of Bible exposition is: **The process of translating careful exegesis into food for sheep**. Scholarly work in exegesis is necessary, but we are not here to impress scholars. We have congregations that come for food.
 
@@ -134,7 +134,7 @@ Summarizing, **exegesis** has to do with determining the truth of the text.
 
 **Exposition** follows by converting the technical matters into concepts that are readily grasped. This is an added workload for the pastor, perhaps adding as much as 50% to the time required to prepare lessons; but the pastor is ready to present the truth determined by exegesis.
 
-*_Clarity Is Essential to Presentation_*
+__*Clarity Is Essential to Presentation*__
 
 Clarity is achieved by collecting the results of the scholarly exegesis then reducing that material to the simple declarations that communicate the truth. The purpose of teaching is not to confuse or impress. The task is to communicate! It is difficult to present the pure exegesis as clear and accurate exposition. Spend time on “translating” the esoteric doctrines into the “language” of the people.
 
@@ -149,7 +149,7 @@ A professor said, “After making a beautiful cabinet, what should the carpenter
 Similarly, when you use the tools to create a good meal, serve the meal, not the tools. Who would enjoy a dinner consisting of a raw piece of steak, a stick of butter, a pan, some garlic and sliced mushrooms? Are those things essential? Absolutely, but despite our imagination, they are not a meal until the steak is barbequed and the mushrooms sautéed. Likewise, exposition must display the end result of careful exegesis in a way that the congregation can recognize as food. Otherwise, much less
 edification takes place.
 
-*_Compassion_*
+__*Compassion*__
 
 Effective exposition may contrast truth with compassion against truth that lacks it. For example, in Acts chapter 9, did God answer Ananias’ wrong thinking with truth alone? Or, do Acts 9:11–13 communicate truth with compassion? “So the Lord said to him, ‘Arise and go to the street called Straight, and inquire at the house of Judas for one called Saul of Tarsus, for behold, he is praying.’ And in a vision he has seen a man named Ananias coming in and putting his hand on him, so that he might receive his sight. Then Ananias answered, ‘Lord, I have heard from many about this man, how much harm he has done to Your saints in Jerusalem. And here he has authority from the chief priests to bind all who call on Your name.”
 
