@@ -96,32 +96,32 @@ shalt be saved.” (Acts 16:31)
 
 The word “barrier” has been coined by Bible teachers (it is not a Bible word) to refer to those characteristics of man and of God which cause man to be alienated from God. The barrier, as described in six parts below, represents mankind’s need to be reconciled to God by God’s grace provision.
 
-1. Every person has a retroactive “position” in Adam. Because Adam died spiritually, every person is born spiritually dead. Read 1 Cor. 15:22 and Eph. 2:5, 6.
+* Every person has a retroactive “position” in Adam. Because Adam died spiritually, every person is born spiritually dead. Read 1 Cor. 15:22 and Eph. 2:5, 6.
 
 This problem is solved by God’s offering to us a “position” in Christ, a condition which forms the basis for the doctrines related to positional truth. Read 1 John 5:11, 12; 1 Cor. 15:22; Eph. 1:7.
 
-2. Man’s physical birth places him in a condemned human race: 1 Cor.
+* Man’s physical birth places him in a condemned human race: 1 Cor.
 15:22; Eph. 2:5, 6. 
 
 This problem is solved by God’s allowing us to become members of His family through regeneration: John 1:11, 12; 3:3 ff; Gal. 3:26; Titus 3:5.
 
-3. God’s perfect character, His glory, His perfect essence, disallows imperfection of any kind. Example: The Ten Commandments. Read Rom. 3:23; Gal. 3:22, 23; Ps. 145:17.
+* God’s perfect character, His glory, His perfect essence, disallows imperfection of any kind. Example: The Ten Commandments. Read Rom. 3:23; Gal. 3:22, 23; Ps. 145:17.
 
 But the death of Christ on the cross paid the penalty for our sin. He was our propitiation. Propitiation is “the work of the Lord Jesus Christ by which He appeases the wrath of God and conciliates Him who would otherwise be offended by our sin.” Read 1 John 2:2; Rom. 3:25.
 
-4. Man’s personal righteousness falls short of God’s perfect righteousness: Isa. 64:6; Rom. 3:10–12; Rom. 5:6-11.
+* Man’s personal righteousness falls short of God’s perfect righteousness: Isa. 64:6; Rom. 3:10–12; Rom. 5:6-11.
 
 This problem is solved in two ways. First, by justification, “God’s act of grace by which He pardons the sinner and accepts him as righteous on account of the atonement of Christ.” Read Rom. 3:24; 5:1.
 
 Then, by imputation, “the act of God by which He credits human sin to Christ in order that He may in turn credit righteousness to men.” Read Rom. 3:22; 2 Cor. 5:21.
 
-5. Man’s personal sin causes him to fall short on a day by day basis: Rom. 3:23. This problem is solved by redemption, by which man is purchased from the slave market of sin and set free as a citizen of the heavenly kingdom: John 8:31-36; Eph. 1:7.
+* Man’s personal sin causes him to fall short on a day by day basis: Rom. 3:23. This problem is solved by redemption, by which man is purchased from the slave market of sin and set free as a citizen of the heavenly kingdom: John 8:31-36; Eph. 1:7.
 
-6. Man stands under the penalty of sin: Rom. 6:23; 5:12.
+* Man stands under the penalty of sin: Rom. 6:23; 5:12.
 
 The penalty for sin was paid by Jesus Christ on the cross. This is known as expiation, a blotting out of sin: Col. 2:14.
 
 The barrier is removed and man is free to approach God. God is free to treat man in grace. God’s righteousness and justice are satisfied. The complete penalty has been paid.
 
-There is no double jeopardy for sins committed. “As far as the east is from the west, so far hath He removed our transgressions from us.” Therefore, the only issue to be faced by any person is whether he believes in Jesus Christ and His work on the cross. Read Acts 16:30: John 3:15-17, 36; 5:24.
+There is no double jeopardy for sins committed. “_As far as the east is from the west, so far hath He removed our transgressions from us._” Therefore, the only issue to be faced by any person is whether he believes in Jesus Christ and His work on the cross. Read Acts 16:30: John 3:15-17, 36; 5:24.
 
