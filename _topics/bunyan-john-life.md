@@ -1,57 +1,17 @@
 ---
 title: Bunyan John Life
+display_title: The Life of John Bunyan
+description:  the life of the great Christian author of Pilgrim's Progress.
 layout: lesson
 ---
 
+**CHAPTER I.**
 
-**Life of John Bunyan**Page 62 of 62
+John Bunyan, the author of the book which has probably passed through more editions, had a greater number of readers, and been translated into more languages than any other book in the English tongue, was born in the parish of Elstow, in Bedfordshire, in the latter part of the year 1628, and was baptized in the parish church of the village on the last day of November of that year.
 
-The Life of John Bunyan
-=======================
-
-CHAPTER I.
-
-John Bunyan, the author of the book which has probably passed through
-more editions, had a greater number of readers, and been translated into
-more languages than any other book in the English tongue, was born in
-the parish of Elstow, in Bedfordshire, in the latter part of the year
-1628, and was baptized in the parish church of the village on the last
-day of November of that year.
-
-The year of John Bunyan’s birth was a momentous one both for the nation
-and for the Church of England. Charles I., by the extorted assent to the
-Petition of Right, had begun reluctantly to strip himself of the
-irresponsible authority he had claimed, and had taken the first step in
-the struggle between King and Parliament which ended in the House of
-Commons seating itself in the place of the Sovereign. Wentworth (better
-known as Lord Strafford) had finally left the Commons, baffled in his
-nobly-conceived but vain hope of reconciling the monarch and his people,
-and having accepted a peerage and the promise of the Presidency of the
-Council of the North, was foreshadowing his policy of “Thorough,” which
-was destined to bring both his own head and that of his weak master to
-the block. The Remonstrance of Parliament against the toleration of
-Roman Catholics and the growth of Arminianism, had been presented to the
-indignant king, who, willfully blinded, had replied to it by the
-promotion to high and lucrative posts in the Church of the very men
-against whom it was chiefly directed. The most outrageous upholders of
-the royal prerogative and the irresponsible power of the sovereign,
-Montagu and Mainwaring, had been presented, the one to the see of
-Chichester, the other - the impeached and condemned of the Commons - to
-the rich living Montagu’s consecration had vacated. Montaigne, the
-licenser of Mainwaring’s incriminated sermon, was raised to the
-Archbishopric of York, while Neile and Laud, who were openly named in
-the Remonstrance as the “troublers of the English Israel,” were rewarded
-respectively with the rich see of Durham and the important and
-deeply-dyed Puritan diocese of London. Charles was steadily sowing the
-wind, and destined to reap the whirlwind which was to sweep him from his
-throne, and involve the monarchy and the Church in the same overthrow.
-Three months before Bunyan’s birth Buckingham, on the eve of his
-departure for the beleaguered and famine-stricken city of Rochelle,
-sanguinely hoping to conclude a peace with the French king beneath its
-walls, had been struck down by the knife of a fanatic, to the
-undisguised joy of the majority of the nation, bequeathing a legacy of
-failure and disgrace in the fall of the Protestant stronghold on which
-the eyes of Europe had been so long anxiously fixed.
+The year of John Bunyan’s birth was a momentous one both for the nation and for the Church of England. Charles I., by the extorted assent to the Petition of Right, had begun reluctantly to strip himself of the irresponsible authority he had claimed, and had taken the first step in the struggle between King and Parliament which ended in the House of Commons seating itself in the place of the Sovereign. Wentworth (better known as Lord Strafford) had finally left the Commons, baffled in his nobly-conceived but vain hope of reconciling the monarch and his people, and having accepted a peerage and the promise of the Presidency of the Council of the North, was foreshadowing his policy of “Thorough,” which was destined to bring both his own head and that of his weak master to the block. The Remonstrance of Parliament against the toleration of
+Roman Catholics and the growth of Arminianism, had been presented to the indignant king, who, willfully blinded, had replied to it by the promotion to high and lucrative posts in the Church of the very men against whom it was chiefly directed. The most outrageous upholders of the royal prerogative and the irresponsible power of the sovereign, Montagu and Mainwaring, had been presented, the one to the see of Chichester, the other - the impeached and condemned of the Commons - to the rich living Montagu’s consecration had vacated. Montaigne, the licenser of Mainwaring’s incriminated sermon, was raised to the
+Archbishopric of York, while Neile and Laud, who were openly named in the Remonstrance as the “troublers of the English Israel,” were rewarded respectively with the rich see of Durham and the important and deeply-dyed Puritan diocese of London. Charles was steadily sowing the wind, and destined to reap the whirlwind which was to sweep him from his throne, and involve the monarchy and the Church in the same overthrow. Three months before Bunyan’s birth Buckingham, on the eve of his departure for the beleaguered and famine-stricken city of Rochelle, sanguinely hoping to conclude a peace with the French king beneath its walls, had been struck down by the knife of a fanatic, to the undisguised joy of the majority of the nation, bequeathing a legacy of failure and disgrace in the fall of the Protestant stronghold on which the eyes of Europe had been so long anxiously fixed.
 
 The year was closing gloomily, with ominous forecasts of the coming
 hurricane, when the babe who was destined to leave so imperishable a
