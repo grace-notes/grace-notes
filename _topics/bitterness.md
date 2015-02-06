@@ -91,7 +91,7 @@ to me?, is a statement of bitterness.
 
 **Recovery from Bitterness**
 
-Isa. 38:17, “_Behold, bitterness became deliverance to me. In Your love You have delivered my soul out of the pit of destruction; for You have cast all my sins behind my back._”
+> Isa. 38:17, “Behold, bitterness became deliverance to me. In Your love You have delivered my soul out of the pit of destruction; for You have cast all my sins behind my back.”
 
 Ephesians 1:8 tells us that we have available to us wisdom and prudence which are part of God’s grace provision for us. Wisdom comes with a thorough understanding of Bible doctrine and the principles of Christian living. Prudence is the practical use of applied Bible truth in making decisions and solving problems in this life.
 
