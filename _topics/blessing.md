@@ -122,7 +122,7 @@ These are words of vocabulary, of thinking divine viewpoint. Blessing is not a f
 
 With edification we build the ability to think about God, which enables us to receive and enjoy blessing and to be a blessing to others.
 
-Heb. 6:7, “For the earth which drinks in the rain that often comes upon it, and brings forth herbs for them by whom it is dressed, receives blessing from God.”
+> Heb. 6:7, “For the earth which drinks in the rain that often comes upon it, and brings forth herbs for them by whom it is dressed, receives blessing from God.”
 
 The most basic form of evangelism is to talk about God’s blessing which are available to everyone, saved or not.
 
@@ -136,7 +136,7 @@ We should plead to be made into showers of blessing, or rather, showers of (**eu
 
 Study Eph. 4:29 ff on the concept of speech that ministers grace.
 
-See also, Eph. 5, “neither foolishness … but rather giving of thanks.”
+See also, Eph. 5, “_neither foolishness … but rather giving of thanks._”
 
 1 Pet. 3:9
 
@@ -146,7 +146,7 @@ James 3:10 and John 7:38
 
 We are to be fountains of blessing.
 
-Matt. 25:34; Daniel 4:33,34; (Blessing is not mentioned in Matt. 6:25-34 and Josh. 1:7,8
+Matt. 25:34; Daniel 4:33,34; (Blessing is not mentioned in Matt. 6:25-34 and Josh. 1:7,8)
 
 > Ephesians 1:3 (expanded translation) **“Worthy of praise and glorification is the God and Father of our Lord Jesus Christ, the one who has provided us benefits and every spiritual blessing in the heavenlies in Christ:”**
 
