@@ -148,5 +148,5 @@ We are to be fountains of blessing.
 
 Matt. 25:34; Daniel 4:33,34; (Blessing is not mentioned in Matt. 6:25-34 and Josh. 1:7,8
 
-Ephesians 1:3 (expanded translation) **“Worthy of praise and glorification is the God and Father of our Lord Jesus Christ, the one who has provided us benefits and every spiritual blessing in the heavenlies in Christ:”**
+> Ephesians 1:3 (expanded translation) **“Worthy of praise and glorification is the God and Father of our Lord Jesus Christ, the one who has provided us benefits and every spiritual blessing in the heavenlies in Christ:”**
 
